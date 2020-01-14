@@ -8,10 +8,10 @@ This wiki has links to websites giving information about the support available t
 
 ## Topics
 
-* [What Next](https://github.com/saboyle/LeavingCareWiki/wiki/What-Next)
-* [Education & Training](https://saboyle.github.io/LeavingCareWiki/Employment)
-* [Housing / Homelessness](https://github.com/saboyle/LeavingCareWiki/wiki/Housing)
-* [Money](https://github.com/saboyle/LeavingCareWiki/wiki/Money)
-* [Employment](https://github.com/saboyle/LeavingCareWiki/wiki/Employment)
-* [Health](https://github.com/saboyle/LeavingCareWiki/wiki/Health)
-* [Law & Police](https://github.com/saboyle/LeavingCareWiki/wiki/Law-&-Police)
+* [What Next](What-Next.md)
+* [Education & Training](Employment.md)
+* [Housing / Homelessness](Housing.md)
+* [Money](Money.md)
+* [Employment](Employment.md)
+* [Health](Health.md)
+* [Law & Police](Law-&-Police.md)
