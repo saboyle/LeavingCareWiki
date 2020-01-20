@@ -10,7 +10,7 @@ This wiki has links to websites giving information about the support available t
 
 * [What Next](What-Next.md)
 * [Education & Training](Education.md)
-* [Housing / Homelessness](Housing.md)
+* [Housing](Housing.md)
 * [Money](https://github.com/saboyle/LeavingCareWiki/wiki/Money)
 * [Employment](https://github.com/saboyle/LeavingCareWiki/wiki/Employment)
 * [Health](https://github.com/saboyle/LeavingCareWiki/wiki/Health)
