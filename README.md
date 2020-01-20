@@ -8,7 +8,7 @@ This wiki has links to websites giving information about the support available t
 
 ## Topics
 
-* [What Next](https://github.com/saboyle/LeavingCareWiki/wiki/What-Next)
+* [What Next](What-Next)
 * [Education & Training](https://github.com/saboyle/LeavingCareWiki/wiki/Employment)
 * [Housing / Homelessness](https://github.com/saboyle/LeavingCareWiki/wiki/Housing)
 * [Money](https://github.com/saboyle/LeavingCareWiki/wiki/Money)
