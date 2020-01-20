@@ -22,7 +22,7 @@ Try Jobsearch [https://www.gov.uk/jobsearch](https://www.gov.uk/jobsearch)
 [http://www.kier.co.uk/earlycareers/apprentices/what-we-look-for.aspx](http://www.kier.co.uk/earlycareers/apprentices/what-we-look-for.aspx)
 
 Apprenticeship and school leaver job vacancies
-[Www.careermap.co.uk](Www.careermap.co.uk)
+[Www.careermap.co.uk](http://Www.careermap.co.uk)
 
 Type the word ‘trainee’ or other job title into the ‘What’ box of this job search site
 [https://www.indeed.co.uk/m/#](https://www.indeed.co.uk/m/#)
