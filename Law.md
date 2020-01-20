@@ -19,7 +19,7 @@ If you need help from somewhere else then contact one of these organisations
 Legal advisers who can help with your problems with things like 
 housing and if you don’t think something that’s happened to you is fair
 
-* Coram Voice: [https://coramvoice.org.uk](ttps://coramvoice.org.uk)
+* Coram Voice: [https://coramvoice.org.uk](https://coramvoice.org.uk)
 
 * National Youth Advocacy Service: 
 [https://youngpeople.nyas.net/index.php/get-in-touch/nyas-helpline](https://youngpeople.nyas.net/index.php/get-in-touch/nyas-helpline)
