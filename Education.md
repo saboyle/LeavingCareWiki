@@ -14,7 +14,7 @@ https://www.gov.uk/find-traineeship
 https://www.apprenticeships.gov.uk/apprentice/what-is-an-apprenticeship
 
 
-How to find an apprenticeship where you are [https://www.findapprenticeship.service.gov.uk](https://www.findapprenticeship.service.gov.uk)/apprenticeshipsearch?searchMode=Keyword
+How to find an apprenticeship where you are [https://www.findapprenticeship.service.gov.uk](https://www.findapprenticeship.service.gov.uk/apprenticeshipsearch?searchMode=Keyword)
 
 Try Jobsearch [https://www.gov.uk/jobsearch](https://www.gov.uk/jobsearch)
 
