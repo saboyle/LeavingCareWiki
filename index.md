@@ -12,6 +12,5 @@ This wiki has links to websites giving information about the support available t
 * [Education & Training](Education.md)
 * [Housing / Homelessness](Housing.md)
 * [Money](Money.md)
-* [Employment](Employment.md)
 * [Health](Health.md)
-* [Law & Police](Law-&-Police.md)
+* [Law & Police](Law.md)
