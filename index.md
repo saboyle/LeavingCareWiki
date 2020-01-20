@@ -9,7 +9,7 @@ This wiki has links to websites giving information about the support available t
 ## Topics
 
 * [What Next](What-Next.md)
-* [Education & Training](Employment.md)
+* [Education & Training](Education.md)
 * [Housing / Homelessness](Housing.md)
 * [Money](Money.md)
 * [Employment](Employment.md)
