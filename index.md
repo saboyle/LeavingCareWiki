@@ -1,4 +1,4 @@
-# Welcome to the LeavingCareWiki!
+# Welcome to the Leaving Care Portal
 
 ![Leaving Care Image](http://clipart-library.com/image_gallery/40366.jpg)
 
