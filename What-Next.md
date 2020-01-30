@@ -1,8 +1,8 @@
-## What next
+## What next?
 
 You can leave school on the last Friday in June if you will be 16 by the end of the summer holidays. You then have to do one of the following until you are 18: start a traineeship or apprenticeship, get a job or stay in full time education.
 
-When you leave care Children's Services at your local council must make sure you have a Personal Adviser. They should help you decide what you want to do next and make sure you've got somewhere to live and enough money until you are 18 and then continue to support you until you’re 25.
+When you leave care **Children's Services** at your local council must make sure you have a Personal Adviser. They should help you decide what you want to do next and make sure you've got somewhere to live and enough money until you are 18 and then continue to support you until you’re 25.
 
 If you don’t know who is looking after you at the council put your postcode into the ‘Find your local council’ website and, when you ring them up, ask for Children's Services [https://www.gov.uk/find-local-council](https://www.gov.uk/find-local-council).
 
