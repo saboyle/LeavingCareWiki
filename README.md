@@ -1,4 +1,4 @@
-# LeavingCare
+# Leaving Care
 
 Portal of curated links for young people leaving care.
 
