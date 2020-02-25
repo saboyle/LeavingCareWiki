@@ -1,30 +1,35 @@
-## Continuuing Support
+## Continuing Support
 
-You are entitled to have a Personal Adviser at your local council to help you with any problems until you are 25
+You are entitled to have a **Personal Adviser** at your local council to help you with any problems until you are 25
 
-Find your local council here and ask for Children's Services
+Find your local council here and ask for **Children's Services**
 https://www.gov.uk/find-local-council
 
 
-Just want a chat?
+**Just want a chat?
 
-Make contact with other care leavers
+Make contact with other care leavers at the **IMO Hub**
 http://imohub.org.uk/about/
 
 
-Contact the advice line at Become
+Contact the advice line at **Become**
 http://www.becomecharity.org.uk
 
-Or Coram Voice
+
+Or **Coram Voice**
 https://coramvoice.org.uk
 
-Or the Prince’s Trust
+
+Or **The Prince’s Trust**
 https://www.princes-trust.org.uk
 
-Care leavers tell their own stories
+
+
+Care leavers tell their own stories here
 http://inspire-me-live.herokuapp.com
 
 
-And always remember you are all my heroes
+And always remember **you are all my heroes**
 
-Emily Foster 2020
+
+Content by Emily Foster 2020
