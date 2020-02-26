@@ -1,20 +1,20 @@
-## Education & Training
+## Education / Training
 
 If you decide to leave school at 16 and would like to find out about getting practical skills like plumbing or more qualifications like GCSEs in English and maths, A levels or Diplomas (this is called ‘Further Education’), click here
 https://nationalcareersservice.direct.gov.uk/course-directory/home
 
 
-You are entitled to get help applying for courses from your Personal Adviser
+You are entitled to get help applying for courses from your **Personal Adviser**
 
 
 If you’re between 16 and 19 find out what courses and qualifications are available to study near where you live
    https://www.gov.uk/courses-qualifications
 
-Find out what funding is available for your college course
+Find out what funding is available for your college course here
 https://nationalcareers.service.gov.uk/contact-us
 
 
-Are you thinking of going to university? (also known as ‘Higher Education’)
+Are you thinking of going to **university**? (also known as ‘Higher Education’)
 http://propel.org.uk/UK/?country=uk
 
 A university student’s story 
@@ -25,30 +25,30 @@ https://m.youtube.com/watch?v=NN2T0D6mW2Y
 
 
 
-All applications to university are made through UCAS
+All applications to university are made through **UCAS**
 https://www.thecompleteuniversityguide.co.uk/international/studying-in-the-uk/applying-to-a-british-university/
 
 When filling in your UCAS form tick the ‘Care leaver’’ box and you will get more support
 https://www.ucas.com/undergraduate/applying-university/individual-needs/ucas-undergraduate-support-care-leavers
 
 
-(For information on applying to Student Finance to fund your university course see
-the MONEY page)
+(For information on applying to **Student Finance** to fund your university course go to 
+the **Money** section)
 
 Many universities offer special support to care leavers, both during the application stage and once you arrive to start doing your course
 
 Here are the websites for some of the universities offering special support:
 
-University of London 
+**University of London**
 https://www.welfare.qmul.ac.uk/money/undergraduates/care-experienced-students/
 
-Bristol University
+**Bristol University**
 http://www1.uwe.ac.uk/students/feesandfunding/fundingandscholarships/careleavers.aspx
 
-University of Bath
+**University of Bath**
 http://www.bath.ac.uk/study/teachers-advisers-parents/care-leavers/
 
-University of Birmingham
+**University of Birmingham**
 http://www.birmingham.ac.uk/undergraduate/requirements/care-leavers.aspx
 
 Bournemouth University
