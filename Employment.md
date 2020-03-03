@@ -10,15 +10,16 @@ A traineeship is work preparation training to give 16 to 24 year olds the skills
 ### Find a traineeship
 [https://www.gov.uk/find-traineeship](https://www.gov.uk/find-traineeship)
 
+
 ### What is an apprenticeship?
 [https://www.apprenticeships.gov.uk/apprentice/what-is-an-apprenticeship](https://www.apprenticeships.gov.uk/apprentice/what-is-an-apprenticeship)
 
-
-**Find an apprenticeship where you are** [https://www.findapprenticeship.service.gov.uk](https://www.findapprenticeship.service.gov.uk/apprenticeshipsearch?searchMode=Keyword)
+### Find an apprenticeship 
+[https://www.findapprenticeship.service.gov.uk](https://www.findapprenticeship.service.gov.uk/apprenticeshipsearch?searchMode=Keyword)
 
 Try **Jobsearch** [https://www.gov.uk/jobsearch](https://www.gov.uk/jobsearch)
 
- An organisation that is very supportive to care leavers is **Kier**, a construction company. You don’t need any qualifications to apply for an apprenticeship:
+ An organisation that is very supportive to care leavers is **Kier**, a construction company. You don’t need any qualifications to apply for an apprenticeship
 [http://www.kier.co.uk/earlycareers/apprentices/what-we-look-for.aspx](http://www.kier.co.uk/earlycareers/apprentices/what-we-look-for.aspx)
 
 Apprenticeship and school leaver job vacancies
