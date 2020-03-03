@@ -1,17 +1,17 @@
 ## Employment
 
-If you are 16 or 17 and not in education then you will have to do a traineeship, an apprenticeship or get a job. Whatever age you are you can contact your local Jobcentreplus for help
+If you are 16 or 17 and not in education then you will have to do a **traineeship, an apprenticeship or get a job.** Whatever age you are you can contact your local **Jobcentre Plus** for help
 [https://www.totaljobs.com/careers-advice/job-centres/job-centres](https://www.totaljobs.com/careers-advice/job-centres/job-centres)
 
-### What is a traineeship?
+**What is a traineeship?**
 
 A traineeship is work preparation training to give 16 to 24 year olds the skills you will need to get an apprenticeship or a job
 
-### Find a traineeship
+**Find a traineeship**
 [https://www.gov.uk/find-traineeship](https://www.gov.uk/find-traineeship)
 
 
-### What is an apprenticeship?
+**What is an apprenticeship?**
 [https://www.apprenticeships.gov.uk/apprentice/what-is-an-apprenticeship](https://www.apprenticeships.gov.uk/apprentice/what-is-an-apprenticeship)
 
 ### Find an apprenticeship 
