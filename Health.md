@@ -39,7 +39,7 @@ https://www.childline.org.uk/get-support/contacting-childline/
 Helplines including the **Samaritans** and the **young suicide prevention society (PAPYRUS)**
 https://www.nhs.uk/Conditions/stress-anxiety-depression/Pages/mental-health-helplines.aspx
 
-Contact **Turn2Us** an organisation that can help you sort out your feelings
+Contact **turn2me** an organisation that can help you sort out your feelings
 https://turn2me.org/?gclid=EAIaIQobChMIqN7fwpL61QIVZLftCh3zswLzEAAYASAAEgLg7_D_BwE
 
 
