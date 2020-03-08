@@ -1,6 +1,6 @@
 ## Housing
 
-The person who looks after you in the local council, your **Personal Adviser**, must tell you what is available for you to move to when you leave care. Ask them what you are entitled to in the way of  'Setting Up Home Allowances' also known as '**Leaving Care Grants**'.
+The person who looks after you in the local council, your **Personal Adviser**, must tell you what is available for you to move to when you leave care. Ask them what you are entitled to in the way of  'Setting Up Home Allowances' also known as '**Leaving Care Grants**'
 [https://www.gov.uk/leaving-foster-or-local-authority-care](ttps://www.gov.uk/leaving-foster-or-local-authority-care)
 
 The housing charity **Shelter** has a website with useful information about what you are entitled to
@@ -22,8 +22,8 @@ Contact your **Personal Adviser** at Children's Services who should treat you as
 [http://www.homeless.org.uk/search-services?](http://www.homeless.org.uk/search-services?)
 
 
-Find emergency accommodation near you
+**Shelter**
 https://england.shelter.org.uk/housing_advice/homelessness/temporary_housing_if_youre_homeless/help_if_youre_16_to_25_years_old
 
-Are you sleeping rough?
+**Are you sleeping rough?**
 https://centrepoint.org.uk/youth-homelessness/get-help-now/i-am-a-young-person/help-when-youre-sleeping-rough/
