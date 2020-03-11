@@ -16,11 +16,11 @@ Contact the advice line at **Become**
 http://www.becomecharity.org.uk
 
 
-Or **Coram Voice**
+or **Coram Voice**
 https://coramvoice.org.uk
 
 
-Or **The Prince’s Trust**
+or **The Prince’s Trust**
 https://www.princes-trust.org.uk
 
 
