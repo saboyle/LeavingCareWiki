@@ -35,7 +35,8 @@ https://scotland.shelter.org.uk/get_advice/advice_topics/paying_for_a_home/other
 In England the Education Maintenance Allowance has been replaced with the **16-19 Bursary**. You are entitled to £1,200 every year if you are still at school or college
 https://www.gov.uk/1619-bursary-fund
 
-## Want to go to university?
+
+**Want to go to university?**
 
 If you live in Scotland and wish to study at a Scottish university you won’t have to pay any tuition fees. Click here for funding information
 http://www.saas.gov.uk
@@ -51,10 +52,12 @@ You are entitled to £2,000 if you are between 18 and 21 and are doing a course 
 Additional money you may be entitled to if you are going to go to university
 https://www.gov.uk/extra-money-pay-university/university-and-college-hardship-funds
 
+
 **How to open a bank account**
 http://www.money.co.uk/current-accounts/bank-accounts-for-teenagers.htm
 
-## Charities you can contact for grants to help you
+
+**Charities you can contact for grants to help you**
 
 **The Care Leavers’ Foundation**
 http://www.thecareleaversfoundation.org/Apply
