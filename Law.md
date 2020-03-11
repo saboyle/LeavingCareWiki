@@ -1,8 +1,8 @@
-## <i class="fas fa-gavel"></i> Law & Police
+## <i class="fas fa-gavel"></i> Law / Police
 
-You are legally entitled to have a Personal Adviser from Children's Services at your local council to support you between the ages of 16 and 25. You should contact them if you’re having problems.
+You are legally entitled to have a **Personal Adviser** from **Children's Services** at your local council to support you between the ages of 16 and 25. You should contact them if you’re having problems.
 
-Find your local council and ask for Children's Services
+Find your local council and ask for **Children's Services**
 [https://www.gov.uk/find-local-council](https://www.gov.uk/find-local-council)
 
 If you need help from somewhere else then contact one of these organisations
@@ -17,7 +17,7 @@ If you need help from somewhere else then contact one of these organisations
 Legal advisers who can help with your problems with things like 
 housing and if you don’t think something that’s happened to you is fair
 
-* Coram Voice: [https://coramvoice.org.uk](https://coramvoice.org.uk)
+* **Coram Voice** [https://coramvoice.org.uk](https://coramvoice.org.uk)
 
-* National Youth Advocacy Service: 
+* **National Youth Advocacy Service**
 [https://youngpeople.nyas.net/index.php/get-in-touch/nyas-helpline](https://youngpeople.nyas.net/index.php/get-in-touch/nyas-helpline)
