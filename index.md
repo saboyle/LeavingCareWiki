@@ -9,10 +9,10 @@ This portal has links to websites giving information about the support available
 ## Topics
 
 * [What Next](What-Next.md)
-* [Education & Training](Education.md)
+* [Education / Training](Education.md)
 * [Employment](Employment.md)
 * [Housing / Homelessness](Housing.md)
 * [Money](Money.md)
 * [Health](Health.md)
-* [Law & Police](Law.md)
-* [Continuuing Support](ContinuuingSupport.md)
+* [Law / Police](Law.md)
+* [Continuing Support](ContinuuingSupport.md)
