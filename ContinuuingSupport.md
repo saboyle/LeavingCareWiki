@@ -6,7 +6,7 @@ Find your local council here and ask for **Children's Services**
 https://www.gov.uk/find-local-council
 
 
-**Just want a chat?**
+### Just want a chat?
 
 Make contact with other care leavers at the **IMO Hub**
 http://imohub.org.uk/about/
@@ -34,4 +34,4 @@ http://inspire-me-live.herokuapp.com
 
 
 
-Content by Emily Foster 2020
+**Content by Emily Foster 2020**
