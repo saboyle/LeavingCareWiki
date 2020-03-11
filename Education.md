@@ -6,12 +6,13 @@ https://nationalcareersservice.direct.gov.uk/course-directory/home
 
 You are entitled to get help applying for courses from your **Personal Adviser**
 
-
 If you’re between 16 and 19 find out what courses and qualifications are available to study near where you live
    https://www.gov.uk/courses-qualifications
 
 Find out what funding is available for your college course here
 https://nationalcareers.service.gov.uk/contact-us
+
+### Considering University
 
 Are you thinking of going to **university**? (also known as ‘Higher Education’)
 http://propel.org.uk/UK/?country=uk
@@ -21,8 +22,6 @@ http://propel.org.uk/stories/zions-story/
 
 A Youtube film of care leavers at university
 https://m.youtube.com/watch?v=NN2T0D6mW2Y
-
-
 
 All applications to university are made through **UCAS**
 https://www.thecompleteuniversityguide.co.uk/international/studying-in-the-uk/applying-to-a-british-university/
