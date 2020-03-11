@@ -13,8 +13,6 @@ If you’re between 16 and 19 find out what courses and qualifications are avail
 Find out what funding is available for your college course here
 https://nationalcareers.service.gov.uk/contact-us
 
-<p>
-
 Are you thinking of going to **university**? (also known as ‘Higher Education’)
 http://propel.org.uk/UK/?country=uk
 
