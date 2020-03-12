@@ -1,3 +1,5 @@
+![Leaving Care Image](http://clipart-library.com/image_gallery/40366.jpg)
+
 ## Health
 
 Need an **ambulance?  Dial 999**
