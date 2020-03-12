@@ -1,3 +1,5 @@
+![Leaving Care Image](http://clipart-library.com/image_gallery/40366.jpg)
+
 ## Education / Training
 
 If you decide to leave school at 16 and would like to find out about getting practical skills like plumbing or more qualifications like GCSEs in English and maths, A levels or Diplomas (this is called ‘Further Education’), click here
