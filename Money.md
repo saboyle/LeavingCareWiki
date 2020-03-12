@@ -1,3 +1,5 @@
+![Leaving Care Image](http://clipart-library.com/image_gallery/40366.jpg)
+
 ## Money
 
 Up to age 18 the local council is responsible for supporting you and giving you enough money to live so you should contact your **Personal Adviser** in **Children's Services** 
