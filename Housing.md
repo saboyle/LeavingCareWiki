@@ -1,3 +1,5 @@
+![Leaving Care Image](http://clipart-library.com/image_gallery/40366.jpg)
+
 ## Housing
 
 The person who looks after you in the local council, your **Personal Adviser**, must tell you what is available for you to move to when you leave care. Ask them what you are entitled to in the way of  'Setting Up Home Allowances' also known as '**Leaving Care Grants**'
