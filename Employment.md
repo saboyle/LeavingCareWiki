@@ -1,3 +1,5 @@
+![Leaving Care Image](http://clipart-library.com/image_gallery/40366.jpg)
+
 ## Employment
 
 If you are 16 or 17 and not in education then you will have to do a **traineeship, an apprenticeship or get a job** 
