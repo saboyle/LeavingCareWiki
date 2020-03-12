@@ -1,3 +1,5 @@
+![Leaving Care Image](http://clipart-library.com/image_gallery/40366.jpg)
+
 ## <i class="fas fa-gavel"></i> Law / Police
 
 You are legally entitled to have a **Personal Adviser** from **Children's Services** at your local council to support you between the ages of 16 and 25. You should contact them if you’re having problems.
