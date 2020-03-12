@@ -1,3 +1,5 @@
+![Leaving Care Image](http://clipart-library.com/image_gallery/40366.jpg)
+
 ## Continuing Support
 
 You are entitled to have a **Personal Adviser** at your local council to help you with any problems until you are 25
