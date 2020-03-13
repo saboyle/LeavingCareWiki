@@ -2,9 +2,8 @@
 
 ## Education / Training
 
-If you decide to leave school at 16 and would like to find out about getting practical skills like plumbing or more qualifications like GCSEs in English and maths, A levels or Diplomas (this is called ‘Further Education’), click here
+If you decide to leave school at 16 and would like to find out about getting practical skills like building or more qualifications like GCSEs in English and maths, A levels or Diplomas (this is called ‘**Further Education**’), click here
 [https://nationalcareersservice.direct.gov.uk/course-directory/home](https://nationalcareersservice.direct.gov.uk/course-directory/home)
-
 
 You are entitled to get help applying for courses from your **Personal Adviser**
 
@@ -14,7 +13,7 @@ If you’re between 16 and 19 find out what courses and qualifications are avail
 Find out what funding is available for your college course here
 [https://nationalcareers.service.gov.uk/contact-us](https://nationalcareers.service.gov.uk/contact-us)
 
-Are you thinking of going to **university**? (also known as ‘Higher Education’)
+### Are you thinking of going to university? (also known as ‘Higher Education’)
 [http://propel.org.uk/UK/?country=uk](http://propel.org.uk/UK/?country=uk)
 
 A university student’s story 
@@ -26,7 +25,7 @@ A Youtube film of care leavers at university
 All applications to university are made through **UCAS**
 [https://www.thecompleteuniversityguide.co.uk/international/studying-in-the-uk/applying-to-a-british-university/](https://www.thecompleteuniversityguide.co.uk/international/studying-in-the-uk/applying-to-a-british-university/)
 
-When filling in your UCAS form tick the ‘Care leaver’’ box and you will get more support
+When filling in your **UCA** form tick the ‘Care leaver’’ box and you will get more support
 [https://www.ucas.com/undergraduate/applying-university/individual-needs/ucas-undergraduate-support-care-leavers](https://www.ucas.com/undergraduate/applying-university/individual-needs/ucas-undergraduate-support-care-leavers)
 
 
@@ -49,24 +48,24 @@ Here are the websites for some of the universities offering special support:
 **University of Birmingham**
 [http://www.birmingham.ac.uk/undergraduate/requirements/care-leavers.aspx](http://www.birmingham.ac.uk/undergraduate/requirements/care-leavers.aspx)
 
-Bournemouth University
+**Bournemouth University**
 [https://www1.bournemouth.ac.uk/study/undergraduate/studying-us/information-care-leavers](https://www1.bournemouth.ac.uk/study/undergraduate/studying-us/information-care-leavers)
 
-Edge Hill University, Ormskirk in Lancashire
+**Edge Hill University, Ormskirk, Lancashire**
 [https://www.edgehill.ac.uk/studentservices/care-leavers/](https://www.edgehill.ac.uk/studentservices/care-leavers/)
 
-University of Cambridge
+**University of Cambridge**
 [http://www.undergraduate.study.cam.ac.uk/why-cambridge/support/care-leaver-support](http://www.undergraduate.study.cam.ac.uk/why-cambridge/support/care-leaver-support)
 
-University of Essex, Colchester
+**University of Essex, Colchester**
 [https://www1.essex.ac.uk/students/groups/care-leavers.aspx](https://www1.essex.ac.uk/students/groups/care-leavers.aspx)
 
-University of Wales, Swansea
+**University of Wales, Swansea**
 [https://www.uwtsd.ac.uk/care/](https://www.uwtsd.ac.uk/care/)
 
-University of Edinburgh
+**University of Edinburgh**
 [https://www.ed.ac.uk/studying/undergraduate/access-edinburgh/carers-care-experience/care-experienced]()https://www.ed.ac.uk/studying/undergraduate/access-edinburgh/carers-care-experience/care-experienced)
 
 
-If you don’t get into the university you wanted you can apply through what is called ‘Clearing’ to see if you can get into a different one
+If you don’t get into the university you wanted you can apply through what is called ‘**Clearing**’ to see if you can get into a different one
 [https://www.thecompleteuniversityguide.co.uk/clearing/clearing-advice-for-care-leavers/](https://www.thecompleteuniversityguide.co.uk/clearing/clearing-advice-for-care-leavers/)
