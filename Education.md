@@ -25,7 +25,7 @@ A Youtube film of care leavers at university
 All applications to university are made through **UCAS**
 [https://www.thecompleteuniversityguide.co.uk/international/studying-in-the-uk/applying-to-a-british-university/](https://www.thecompleteuniversityguide.co.uk/international/studying-in-the-uk/applying-to-a-british-university/)
 
-When filling in your **UCA** form tick the ‘Care leaver’’ box and you will get more support
+When filling in your **UCAS** form tick the ‘Care leaver’ box and you will get more support
 [https://www.ucas.com/undergraduate/applying-university/individual-needs/ucas-undergraduate-support-care-leavers](https://www.ucas.com/undergraduate/applying-university/individual-needs/ucas-undergraduate-support-care-leavers)
 
 
