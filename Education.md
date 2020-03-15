@@ -33,7 +33,8 @@ When filling in your **UCAS** form tick the ‘Care leaver’ box and you will g
 
 (For information on applying to **Student Finance** to fund your university course go to 
 the **Money** section)
-                                                                                                                                  
+
+                           *
 Many universities offer special support to care leavers, both during the application stage and once you arrive to start doing your course
 
 Here are the websites for some of the universities offering special support:
