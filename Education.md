@@ -1,19 +1,18 @@
-![Leaving Care Image](http://clipart-library.com/image_gallery/40366.jpg)
 
 ## Education / Training
 
 If you decide to leave school at 16 and would like to find out about getting practical skills like building or more qualifications like GCSEs in English and maths, A levels or Diplomas (this is called ‘**Further Education**’), click here
 [https://nationalcareersservice.direct.gov.uk/course-directory/home](https://nationalcareersservice.direct.gov.uk/course-directory/home)
 
-You are entitled to get help applying for courses from your **Personal Adviser**
+You are entitled to get help applying for **courses** from your **Personal Adviser**
 
-If you’re between 16 and 19 find out what courses and qualifications are available to study near where you live
+If you’re between 16 and 19 find out what **courses** and qualifications are available to study near where you live
    [https://www.gov.uk/courses-qualifications] (https://www.gov.uk/courses-qualifications)
 
 Find out what funding is available for your college course here
 [https://nationalcareers.service.gov.uk/contact-us](https://nationalcareers.service.gov.uk/contact-us)
 
-
+*
                                                                                                                                  
 ### Are you thinking of going to university? (also known as ‘Higher Education’)
 [http://propel.org.uk/UK/?country=uk](http://propel.org.uk/UK/?country=uk)
