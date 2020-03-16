@@ -4,6 +4,8 @@
 If you decide to leave school at 16 and would like to find out about getting practical skills like building or more qualifications like GCSEs in English and maths, A levels or Diplomas (this is called ‘**Further Education**’), click here
 [https://nationalcareersservice.direct.gov.uk/course-directory/home](https://nationalcareersservice.direct.gov.uk/course-directory/home)
 
+*
+
 You are entitled to get help applying for **courses** from your **Personal Adviser**
 
 If you’re between 16 and 19 find out what **courses** and qualifications are available to study near where you live
