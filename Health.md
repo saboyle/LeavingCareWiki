@@ -29,7 +29,7 @@ Sexual health services for under 25s
      https://legacy.brook.org.uk/find-a-service
  
  
- 
+ *
  
 
 **Feeling bad?**
@@ -41,9 +41,9 @@ https://www.childline.org.uk/get-support/contacting-childline/
 Helplines including the **Samaritans** and the **young suicide prevention society (PAPYRUS)**
 https://www.nhs.uk/Conditions/stress-anxiety-depression/Pages/mental-health-helplines.aspx
 
-Contact **turn2me** an organisation that can help you sort out your feelings
+**turn2me** an organisation that can help you sort out your feelings
 https://turn2me.org/?gclid=EAIaIQobChMIqN7fwpL61QIVZLftCh3zswLzEAAYASAAEgLg7_D_BwE
 
-
+*
 
 A YouTube film by a man who was brought up in care (**and thinks all children and young people in care are STARS!)**
