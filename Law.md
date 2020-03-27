@@ -1,4 +1,3 @@
-![Leaving Care Image](http://clipart-library.com/image_gallery/40366.jpg)
 
 ## <i class="fas fa-gavel"></i> Law / Police
 
@@ -7,7 +6,7 @@ You are legally entitled to have a **Personal Adviser** from **Children's Servic
 Find your local council and ask for **Children's Services**
 [https://www.gov.uk/find-local-council](https://www.gov.uk/find-local-council)
 
-If you need help from somewhere else then contact one of these organisations
+If you need help from somewhere else then contact one of these organisations:
 
 * **Citizens Advice** [https://www.citizensadvice.org.uk/about-us/how-we-provide-advice/advice/search-for-your-local-citizens-advice/](https://www.citizensadvice.org.uk/about-us/how-we-provide-advice/advice/search-for-your-local-citizens-advice/)
 
