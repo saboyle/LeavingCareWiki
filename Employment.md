@@ -1,17 +1,22 @@
-![Leaving Care Image](http://clipart-library.com/image_gallery/40366.jpg)
 
 ## Employment
 
 If you are 16 or 17 and not in education then you will have to do a **traineeship, an apprenticeship or get a job** 
 
+*
+
 Whatever age you are you can contact your local **Jobcentre Plus** for help
 [https://www.totaljobs.com/careers-advice/job-centres/job-centres](https://www.totaljobs.com/careers-advice/job-centres/job-centres)
+
+*
 
 **What is a traineeship?**
 A traineeship is work preparation training to give 16 to 24 year olds the skills you will need to get an apprenticeship or a job
 
 **Find a traineeship**
 [https://www.gov.uk/find-traineeship](https://www.gov.uk/find-traineeship)
+
+*
 
 **What is an apprenticeship?**
 [https://www.apprenticeships.gov.uk/apprentice/what-is-an-apprenticeship](https://www.apprenticeships.gov.uk/apprentice/what-is-an-apprenticeship)
@@ -30,7 +35,7 @@ Apprenticeship and school leaver job vacancies
 Type the word ‘trainee’ or other job title into the ‘What’ box of this job search site
 [https://www.indeed.co.uk/m/#](https://www.indeed.co.uk/m/#)
 
-A charity that can help you get your job search started and give you the confidence and skills you need to apply for jobs
+A charity that can help you get your job search started and give you the confidence and skills you need to apply for jobs, **The Prince'Trust**
 [https://www.princes-trust.org.uk/help-for-young-people/get-job](https://www.princes-trust.org.uk/help-for-young-people/get-job)
 
 You will need a typed **CV** telling people about you to give to the person at the place you are applying to for a job or to send to the companies you would like to work for
