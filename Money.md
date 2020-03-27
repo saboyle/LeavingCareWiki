@@ -8,7 +8,7 @@ Up to age 18 the local council is responsible for supporting you and giving you 
 You should contact your local **Jobcentre Plus** to find out what benefits are available to you. If you are 16 or over you are entitled to apply for **Jobseeker’s Allowance** so tell them that you are a care leaver to make sure you get everything you are entitled to
 [https://www.totaljobs.com/careers-advice/job-centres/job-centres](https://www.totaljobs.com/careers-advice/job-centres/job-centres)
 
-You might be told you have to apply for **Universal Credit** instead of Jobseeker’s Allowance. This requires quite a lot of information and needs to be done online so you will need help from either your Personal Adviser or from one of these organisations
+You might be told you have to apply for **Universal Credit** instead of Jobseeker’s Allowance. This requires quite a lot of information and needs to be done online so you will need help from either your Personal Adviser or from one of these organisations https://www.gov.uk/apply-universal-credit
 
 **Become** care leavers' charity, advice line 0800 023 2033
 
