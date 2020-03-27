@@ -34,12 +34,18 @@ Apprenticeship and school leaver job vacancies
 
 Type the word ‘trainee’ or other job title into the ‘What’ box of this job search site
 [https://www.indeed.co.uk/m/#](https://www.indeed.co.uk/m/#)
+*
+
 
 A charity that can help you get your job search started and give you the confidence and skills you need to apply for jobs, **The Prince'Trust**
 [https://www.princes-trust.org.uk/help-for-young-people/get-job](https://www.princes-trust.org.uk/help-for-young-people/get-job)
 
+*
+
 You will need a typed **CV** telling people about you to give to the person at the place you are applying to for a job or to send to the companies you would like to work for
 [https://www.fish4.co.uk/career-advice/younger-jobseekers-cv-template-for-school-leavers/](https://www.fish4.co.uk/career-advice/younger-jobseekers-cv-template-for-school-leavers/)
+
+*
 
 You might have to do an **online test** when you apply for a job so practise doing them here
 [https://www.barclayslifeskills.com/i-want-help-applying-for-jobs/school/assessment-test#form1](https://www.barclayslifeskills.com/i-want-help-applying-for-jobs/school/assessment-test#form1)
