@@ -4,7 +4,9 @@
 
 ## Leaving Care?
 
-This portal has links to websites giving information about the support available to you if you’re leaving care, or if you’ve already left and are under 25, so you can set yourself up for a successful future
+This portal has links to websites giving information about the support available to you if you’re leaving care, or if you’ve already left and are under 25, so you can set yourself up for a successful future. I have included topics, like money, so you can see the places where you can ask for help and I hope you find it useful.
+
+EMILY FOSTER
 
 ## Topics
 
