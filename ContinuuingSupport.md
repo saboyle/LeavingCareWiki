@@ -1,4 +1,3 @@
-![Leaving Care Image](http://clipart-library.com/image_gallery/40366.jpg)
 
 ## Continuing Support
 
@@ -25,12 +24,12 @@ or **Coram Voice**
 or **The Prince’s Trust**
 [https://www.princes-trust.org.uk](https://www.princes-trust.org.uk)
 
-
+*
 
 Care leavers tell their own stories here
 http://inspire-me-live.herokuapp.com
 
-
+*
 
 ### And always remember you are all my heroes
 
