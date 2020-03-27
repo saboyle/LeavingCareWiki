@@ -38,7 +38,7 @@ Type the word ‘trainee’ or other job title into the ‘What’ box of this j
 *
 
 
-A charity that can help you get your job search started and give you the confidence and skills you need to apply for jobs, **The Prince'Trust**
+A charity that can help you get your job search started and give you the confidence and skills you need to apply for jobs, **The Prince's Trust**
 [https://www.princes-trust.org.uk/help-for-young-people/get-job](https://www.princes-trust.org.uk/help-for-young-people/get-job)
 
 *
