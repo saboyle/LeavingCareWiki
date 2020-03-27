@@ -28,7 +28,7 @@ A Youtube film of care leavers at university
 All applications to university are made through **UCAS**
 [https://www.thecompleteuniversityguide.co.uk/international/studying-in-the-uk/applying-to-a-british-university/](https://www.thecompleteuniversityguide.co.uk/international/studying-in-the-uk/applying-to-a-british-university/)
 
-When filling in your **UCAS** form tick the ‘Care leaver’ box and you will get more support
+When filling in your **UCAS** form tick the ‘Care Leaver’ box and you will get more support
 [https://www.ucas.com/undergraduate/applying-university/individual-needs/ucas-undergraduate-support-care-leavers](https://www.ucas.com/undergraduate/applying-university/individual-needs/ucas-undergraduate-support-care-leavers)
 
 
@@ -71,6 +71,7 @@ Here are the websites for some of the universities offering special support:
 **University of Edinburgh**
 [https://www.ed.ac.uk/studying/undergraduate/access-edinburgh/carers-care-experience/care-experienced]()https://www.ed.ac.uk/studying/undergraduate/access-edinburgh/carers-care-experience/care-experienced)
 
+*
 
 If you don’t get into the university you wanted you can apply through what is called ‘**Clearing**’ to see if you can get into a different one
 [https://www.thecompleteuniversityguide.co.uk/clearing/clearing-advice-for-care-leavers/](https://www.thecompleteuniversityguide.co.uk/clearing/clearing-advice-for-care-leavers/)
