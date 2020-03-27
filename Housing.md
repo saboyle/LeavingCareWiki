@@ -16,7 +16,7 @@ If you are moved to a place where you don’t feel safe for any reason then tell
 
 ## Are you Homeless?
 
-Contact your **Personal Adviser** at Children's Services who should treat you as what they call a ‘child in need’ of emergency accommodation. if you don’t get support from the council these charities can help
+Contact your **Personal Adviser** at **Children's Services** who should treat you as what they call a ‘child in need’ of emergency accommodation. If you don’t get support from the council these charities can help
 
 **Centrepoint** [https://centrepoint.org.uk/what-we-do/](https://centrepoint.org.uk/what-we-do/)
 
