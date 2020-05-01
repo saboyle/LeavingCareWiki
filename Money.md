@@ -7,7 +7,10 @@ Up to age 18 the local council is responsible for supporting you and giving you 
 You should contact your local **Jobcentre Plus** to find out what benefits are available to you. If you are 16 or over you are entitled to apply for **Jobseeker’s Allowance** so tell them that you are a care leaver to make sure you get everything you are entitled to
 [https://www.totaljobs.com/careers-advice/job-centres/job-centres](https://www.totaljobs.com/careers-advice/job-centres/job-centres)
 
-You might be told you have to apply for **Universal Credit** instead of Jobseeker’s Allowance. This requires quite a lot of information and needs to be done online so you will need help from either your **Personal Adviser** or from one of these organisations https://www.gov.uk/apply-universal-credit
+You might be told you have to apply for **Universal Credit** instead of Jobseeker’s Allowance.
+https://www.gov.uk/apply-universal-credit
+
+This requires quite a lot of information and needs to be done online so you will need help from either your **Personal Adviser** or from one of these organisations:
 
 **Become** care leavers' charity, advice line 0800 023 2033
 
@@ -19,6 +22,8 @@ You might be told you have to apply for **Universal Credit** instead of Jobseeke
 
 **National Youth Advocacy Service**
 [https://www.nyas.net](https://www.nyas.net)
+
+*
 
 If you’re going to college or doing a training course then see what funding you are entitled to
 [https://nationalcareers.service.gov.uk/contact-us](https://nationalcareers.service.gov.uk/contact-us)
@@ -36,6 +41,7 @@ In Scotland you can also apply for these benefits
 In England the Education Maintenance Allowance has been replaced with the **16-19 Bursary**. You are entitled to £1,200 every year if you are still at school or college
 [https://www.gov.uk/1619-bursary-fund](https://www.gov.uk/1619-bursary-fund)
 
+*
 
 **Want to go to university?**
 
