@@ -63,10 +63,12 @@ You are entitled to £2,000 if you are between 18 and 21 and are doing a course 
 Additional money you may be entitled to if you are going to go to university
 [https://www.gov.uk/extra-money-pay-university/university-and-college-hardship-funds](https://www.gov.uk/extra-money-pay-university/university-and-college-hardship-funds)
 
+*
 
 **How to open a bank account**
 [http://www.money.co.uk/current-accounts/bank-accounts-for-teenagers.htm](http://www.money.co.uk/current-accounts/bank-accounts-for-teenagers.htm)
 
+*
 
 **Charities you can contact for grants to help you**
 
