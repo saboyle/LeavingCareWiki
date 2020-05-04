@@ -70,7 +70,7 @@ Additional money you may be entitled to if you are going to go to university
 
 *
 
-**Charities you can contact for grants to help you**
+**Charities you can contact for grants to help you:**
 
 **The Care Leavers’ Foundation**
 [http://www.thecareleaversfoundation.org/Apply](http://www.thecareleaversfoundation.org/Apply)
