@@ -1,9 +1,8 @@
-![Leaving Care Image](http://clipart-library.com/image_gallery/40366.jpg)
 
 ## Housing
 
 The person who looks after you in the local council, your **Personal Adviser**, must tell you what is available for you to move to when you leave care. Ask them what you are entitled to in the way of  'Setting Up Home Allowances' also known as '**Leaving Care Grants**'
-[https://www.gov.uk/leaving-foster-or-local-authority-care](ttps://www.gov.uk/leaving-foster-or-local-authority-care)
+[https://www.gov.uk/leaving-foster-or-local-authority-care](https://www.gov.uk/leaving-foster-or-local-authority-care)
 
 The housing charity **Shelter** has a website with useful information about what you are entitled to
 [http://england.shelter.org.uk/housing_advice/housing_for_young_people/help_and_housing_for_care_leavers](http://england.shelter.org.uk/housing_advice/housing_for_young_people/help_and_housing_for_care_leavers)
