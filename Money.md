@@ -12,7 +12,7 @@ https://www.totaljobs.com/advice/how-to-claim-jobseekers-allowance
 *
 
 You might be told you have to apply for **Universal Credit** instead of Jobseeker’s Allowance.
-https://www.gov.uk/apply-universal-credit
+https://www.gov.uk/universal-credit/eligibility?step-by-step-nav=7c08bbbf-a1ca-4cf5-850d-d9f2c796c750
 
 This requires quite a lot of information and needs to be done online. You can ask for help from either your **Personal Adviser** or from one of these organisations:
 
