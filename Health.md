@@ -22,8 +22,8 @@ Contact the helpline at **Talk to Frank**
 
 
 **Sexual Health**
-NHS Services
-    http://www.nhs.uk/service-search/sexual-health-information-and-support/locationsearch/734
+NHS Services 
+https://www.nhs.uk/service-search/other-services/Sexual%20health%20services/LocationSearch/1847
 Sexual health services for under 25s
      https://legacy.brook.org.uk/find-a-service
  
