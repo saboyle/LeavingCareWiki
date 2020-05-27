@@ -11,8 +11,8 @@ You are entitled to get help applying for **courses** from your **Personal Advis
 If you’re between 14 and 19 find out what **courses** and qualifications are available to study near where you live
    https://www.gov.uk/courses-qualifications 
 
-Find out what funding is available for your college course here
-https://www.gov.uk/further-education-courses
+Find out what funding is available for your college course herehttps://www.gov.uk/further-education-courses
+[https://www.gov.uk/further-education-courses]
 
 *
                                                                                                                                  
