@@ -25,8 +25,7 @@ A university student’s story
 A Youtube film of care leavers at university
 [https://m.youtube.com/watch?v=NN2T0D6mW2Y](https://m.youtube.com/watch?v=NN2T0D6mW2Y)
 
-All applications to university are made through **UCAS**  [https://www.ucas.com]
-(https://www.ucas.com )
+All applications to university are made through **UCAS**  [https://www.ucas.com](https://www.ucas.com)
 
 When filling in your **UCAS** form tick the ‘Care Leaver’ box and you will get more support
 [https://www.ucas.com/undergraduate/applying-university/individual-needs/ucas-undergraduate-support-care-leavers](https://www.ucas.com/undergraduate/applying-university/individual-needs/ucas-undergraduate-support-care-leavers)
