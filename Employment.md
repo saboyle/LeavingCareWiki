@@ -5,7 +5,7 @@ If you are 16 or 17 and not in education then you will have to do a **traineeshi
 
 *
 
-Whatever age you are you can contact your local **Jobcentre Plus** for help
+Whatever age you are you can contact your local **Jobcentre Plus** for help. Just click on the magnifying glass and type in the name or postcode where you are to find the nearest one
 [https://www.totaljobs.com/careers-advice/job-centres/job-centres](https://www.totaljobs.com/careers-advice/job-centres/job-centres)
 
 *
@@ -38,7 +38,7 @@ Type the word ‘trainee’ or other job title into the ‘What’ box of this j
 *
 
 
-A charity that can help you get your job search started and give you the confidence and skills you need to apply for jobs, **The Prince's Trust**
+A charity that can help you get your job search started and give you the confidence and skills you need to apply for jobs is **The Prince's Trust**
 [https://www.princes-trust.org.uk/help-for-young-people/get-job](https://www.princes-trust.org.uk/help-for-young-people/get-job)
 
 *
