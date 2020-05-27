@@ -9,7 +9,7 @@ If you decide to leave school at 16 and would like to find out about getting pra
 You are entitled to get help applying for **courses** from your **Personal Adviser**
 
 If you’re between 14 and 19 find out what **courses** and qualifications are available to study near where you live
-   https://www.gov.uk/courses-qualifications 
+   [https://www.gov.uk/courses-qualifications](https://www.gov.uk/courses-qualifications)
 
 Find out what funding is available for your college course 
 [https://www.gov.uk/further-education-courses](https://www.gov.uk/further-education-courses)
