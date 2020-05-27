@@ -67,8 +67,7 @@ Here are the websites for some of the universities offering special support:
 **University of Wales, Swansea**
 [https://www.uwtsd.ac.uk/care/](https://www.uwtsd.ac.uk/care/)
 
-**University of Edinburgh** [https://www.ed.ac.uk/studying/undergraduate/access-edinburgh/carers-care-experience]
-(https://www.ed.ac.uk/studying/undergraduate/access-edinburgh/carers-care-experience)
+**University of Edinburgh** [https://www.ed.ac.uk/studying/undergraduate/access-edinburgh/carers-care-experience](https://www.ed.ac.uk/studying/undergraduate/access-edinburgh/carers-care-experience)
 
 
 *
