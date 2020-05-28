@@ -25,8 +25,7 @@ Contact your **Personal Adviser** at **Children's Services** who should treat yo
 
 **Shelter**  
 
-[https://england.shelter.org.uk/housing_advice/homelessness/temporary_housing_if_youre_homeless/help_if_youre_16_to_25_years_old]
-(https://england.shelter.org.uk/housing_advice/homelessness/temporary_housing_if_youre_homeless/help_if_youre_16_to_25_years_old)
+[https://england.shelter.org.uk/housing_advice/homelessness/temporary_housing_if_youre_homeless/help_if_youre_16_to_25_years_old(https://england.shelter.org.uk/housing_advice/homelessness/temporary_housing_if_youre_homeless/help_if_youre_16_to_25_years_old)
 
 
 **Are you sleeping rough?**
