@@ -13,8 +13,8 @@ Need to find a **GP (doctor) or an NHS dentist?** [https://www.nhs.uk/service-se
 Contact the helpline at **Talk to Frank** [https://www.talktofrank.com/get-help/find-support-near-you](https://www.talktofrank.com/get-help/find-support-near-you)
    
 
-**NHS Addiction Helplines**
-  http://www.nhs.uk/Livewell/Addiction/Pages/addictionhome.aspx
+**NHS Addiction Helplines** [https://www.nhs.uk/conditions/stress-anxiety-depression/mental-health-helplines/](https://www.nhs.uk/conditions/stress-anxiety-depression/mental-health-helplines/)
+  
 
 
 
