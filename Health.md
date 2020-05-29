@@ -33,8 +33,8 @@ If you feel you need help with something that happened to you, maybe you were hu
 **Childline**
 https://www.childline.org.uk/get-support/contacting-childline/
 
-Helplines including the **Samaritans** and the **young suicide prevention society (PAPYRUS)**
-https://www.nhs.uk/Conditions/stress-anxiety-depression/Pages/mental-health-helplines.aspx
+**Helpline** including the **Samaritans** and the **young suicide prevention society (PAPYRUS)**
+[https://www.nhs.uk/conditions/stress-anxiety-depression/mental-health-helplines/](https://www.nhs.uk/conditions/stress-anxiety-depression/mental-health-helplines/)
 
 **turn2me** an organisation that can help you sort out your feelings
 https://turn2me.org/?gclid=EAIaIQobChMIqN7fwpL61QIVZLftCh3zswLzEAAYASAAEgLg7_D_BwE
