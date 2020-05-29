@@ -10,8 +10,8 @@ Need to find a **GP (doctor) or an NHS dentist?** [https://www.nhs.uk/service-se
 
 
 **Drug problems?**
-Contact the helpline at **Talk to Frank** 
-   http://www.talktofrank.com/support-near-you
+Contact the helpline at **Talk to Frank** [https://www.talktofrank.com/get-help/find-support-near-you](https://www.talktofrank.com/get-help/find-support-near-you)
+   
 
 **NHS Addiction Helplines**
   http://www.nhs.uk/Livewell/Addiction/Pages/addictionhome.aspx
