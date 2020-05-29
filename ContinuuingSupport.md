@@ -25,8 +25,8 @@ or **The Prince’s Trust**
 
 *
 
-Care leavers tell their own stories here
-http://inspire-me-live.herokuapp.com
+Care leavers tell their own stories here  [http://inspire-me-live.herokuapp.com](http://inspire-me-live.herokuapp.com)
+
 
 *
 
