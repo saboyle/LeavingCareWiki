@@ -30,10 +30,10 @@ Sexual health services specifically for under 25s  [https://legacy.brook.org.uk/
 ## Feeling bad? (Mental Health)
 If you feel you need help with something that happened to you, maybe you were hurt in some way while you were in care or before, or you feel sad, frightened, angry or just feel bad these telephone numbers will enable you to speak to someone who wants to help you:
 
-**Childline**
-https://www.childline.org.uk/get-support/contacting-childline/
+**Childline**  [https://www.childline.org.uk/get-support/contacting-childline/](https://www.childline.org.uk/get-support/contacting-childline/)
 
-**Helpline** including the **Samaritans** and the **young suicide prevention society (PAPYRUS)**
+
+**Helplines*** including the **Samaritans** and the **young suicide prevention society (PAPYRUS)**
 [https://www.nhs.uk/conditions/stress-anxiety-depression/mental-health-helplines/](https://www.nhs.uk/conditions/stress-anxiety-depression/mental-health-helplines/)
 
 **turn2me** an organisation that can help you sort out your feelings
