@@ -72,5 +72,6 @@ Here are the websites for some of the universities offering special support:
 
 *
 
-If you don’t get into the university you wanted you can apply through what is called ‘**Clearing**’ to see if you can get into a different one
-[https://www.thecompleteuniversityguide.co.uk/clearing/clearing-advice-for-care-leavers/](https://www.thecompleteuniversityguide.co.uk/clearing/clearing-advice-for-care-leavers/)
+If you don’t get into the university you wanted you can apply through what is called ‘**Clearing**’ to see if you can get into a different one  
+
+[https://www.thecompleteuniversityguide.co.uk/student-advice/final-choice/guide-to-ucas-clearing](https://www.thecompleteuniversityguide.co.uk/student-advice/final-choice/guide-to-ucas-clearing)
