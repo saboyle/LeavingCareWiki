@@ -2,7 +2,6 @@
 
 ![Leaving Care Image](http://clipart-library.com/image_gallery/40366.jpg)
 
-## Leaving Care?
 
 This portal has links to websites giving information about the support available to you if you’re leaving care, or if you’ve already left and are under 25, so you can set yourself up for a successful future. I have included topics like money and homelessness so you can find where to ask for help. I hope you find it useful.
 
