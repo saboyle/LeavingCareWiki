@@ -22,3 +22,9 @@ housing and if you don’t think something that’s happened to you is fair
 
 * **National Youth Advocacy Service**
 [https://youngpeople.nyas.net/index.php/get-in-touch/nyas-helpline](https://youngpeople.nyas.net/index.php/get-in-touch/nyas-helpline)
+
+
+
+##  Accessing your care records
+
+[https://www.careleavers.com/what-we-do/access-to-records/accessing/](https://www.careleavers.com/what-we-do/access-to-records/accessing/)
