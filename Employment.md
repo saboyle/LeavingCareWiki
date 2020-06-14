@@ -3,7 +3,7 @@
 
 If you are 16 or 17 and not in education then you will have to do a **traineeship, an apprenticeship or get a job** 
 
-Find out what job you might be good at here [https://nationalcareers.service.gov.uk/skills-assessment](https://nationalcareers.service.gov.uk/skills-assessment)
+Find out what job you would be good at here [https://nationalcareers.service.gov.uk/skills-assessment](https://nationalcareers.service.gov.uk/skills-assessment)
 
 
 *
