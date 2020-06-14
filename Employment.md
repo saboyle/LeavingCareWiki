@@ -3,6 +3,7 @@
 
 If you are 16 or 17 and not in education then you will have to do a **traineeship, an apprenticeship or get a job** 
 
+Find out what job you might be good at here [https://nationalcareers.service.gov.uk/skills-assessment](https://nationalcareers.service.gov.uk/skills-assessment)
 *
 
 Whatever age you are you can contact your local **Jobcentre Plus** for help. Just click on the magnifying glass and type in the name or postcode where you are to find the nearest one
