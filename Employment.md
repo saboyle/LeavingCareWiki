@@ -8,7 +8,7 @@ Find out what job you would be good at here [https://nationalcareers.service.gov
 
 *
 
-Whatever age you are you can contact your local **Jobcentre Plus** for help. Just click on the magnifying glass and type in the name or postcode where you are to find the nearest one
+Whatever age you are you can contact your local **Jobcentre Plus** for help. Just click on the magnifying glass and type in the town or postcode where you are to find the nearest one
 [https://www.totaljobs.com/careers-advice/job-centres/job-centres](https://www.totaljobs.com/careers-advice/job-centres/job-centres)
 
 *
