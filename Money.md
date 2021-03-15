@@ -72,8 +72,6 @@ Additional money you may be entitled to if you are going to go to university
 
 **Charities you can contact for grants to help you:**
 
-**The Care Leavers’ Foundation**
-[http://www.thecareleaversfoundation.org/Apply](http://www.thecareleaversfoundation.org/Apply)
 
 **The Capstone Care Leavers Trust**
 [https://www.capstonecareleaverstrust.org/how-we-can-help/](https://www.capstonecareleaverstrust.org/how-we-can-help/)
