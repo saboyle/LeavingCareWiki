@@ -72,6 +72,8 @@ Additional money you may be entitled to if you are going to go to university
 
 **Charities you can contact for grants to help you:**
 
+**Spark Foundation**
+[https://www.sparkfoundation.org.uk/GrantsForm.html](https://www.sparkfoundation.org.uk/GrantsForm.html)
 
 **The Capstone Care Leavers Trust**
 [https://www.capstonecareleaverstrust.org/how-we-can-help/](https://www.capstonecareleaverstrust.org/how-we-can-help/)
