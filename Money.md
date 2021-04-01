@@ -75,7 +75,7 @@ Additional money you may be entitled to if you are going to go to university
 **The Spark Foundation**
 [https://www.sparkfoundation.org.uk/GrantsForm.html](https://www.sparkfoundation.org.uk/GrantsForm.html)
 
-**Rees Foundation** you can apply for a crsis payment for immediate help  
+**Rees Foundation** you can apply for a crisis payment for immediate help  
 [https://www.reesfoundation.org/financial-assistance.html](https://www.reesfoundation.org/financial-assistance.html)
 
 **The Capstone Care Leavers Trust**
