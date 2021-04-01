@@ -46,7 +46,7 @@ Here are the websites for some of the universities offering special support:
 [https://www.uwe.ac.uk/life/health-and-wellbeing/uwe-cares/care-leavers](https://www.uwe.ac.uk/life/health-and-wellbeing/uwe-cares/care-leavers)
 
 **University of Bath**
-[http://www.bath.ac.uk/study/teachers-advisers-parents/care-leavers/](http://www.bath.ac.uk/study/teachers-advisers-parents/care-leavers/)
+[https://www.bath.ac.uk/guides/additional-support-and-funding-for-care-leavers-foyer-residents-and-estranged-students/](https://www.bath.ac.uk/guides/additional-support-and-funding-for-care-leavers-foyer-residents-and-estranged-students/)
 
 **University of Birmingham**
 [http://www.birmingham.ac.uk/undergraduate/requirements/care-leavers.aspx](http://www.birmingham.ac.uk/undergraduate/requirements/care-leavers.aspx)
