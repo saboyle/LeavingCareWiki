@@ -43,7 +43,7 @@ Here are the websites for some of the universities offering special support:
 [https://www.welfare.qmul.ac.uk/money/undergraduates/care-experienced-students/](https://www.welfare.qmul.ac.uk/money/undergraduates/care-experienced-students/)
 
 **Bristol University**
-[http://www1.uwe.ac.uk/students/feesandfunding/fundingandscholarships/careleavers.aspx](http://www1.uwe.ac.uk/students/feesandfunding/fundingandscholarships/careleavers.aspx)
+[https://www.uwe.ac.uk/life/health-and-wellbeing/uwe-cares/care-leavers](https://www.uwe.ac.uk/life/health-and-wellbeing/uwe-cares/care-leavers)
 
 **University of Bath**
 [http://www.bath.ac.uk/study/teachers-advisers-parents/care-leavers/](http://www.bath.ac.uk/study/teachers-advisers-parents/care-leavers/)
