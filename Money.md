@@ -70,7 +70,7 @@ Additional money you may be entitled to if you are going to go to university
 
 *
 
-#  Charities you can contact to apply for grants to help you:
+### Charities you can contact to apply for grants to help you:
 
 **The Spark Foundation**
 [https://www.sparkfoundation.org.uk/GrantsForm.html](https://www.sparkfoundation.org.uk/GrantsForm.html)
