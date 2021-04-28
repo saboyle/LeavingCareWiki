@@ -15,7 +15,7 @@ You might be told you have to apply for **Universal Credit** instead of Jobseeke
 
 This requires quite a lot of information and needs to be done online. You can ask for help from either your **Personal Adviser** or from one of these organisations:
 
-**Become** care leavers' charity, advice line 0800 023 2033[https://www.becomecharity.org.uk/contact](https://www.becomecharity.org.uk/contact)
+**Become** care leavers' charity, advice line 0800 023 2033 [https://www.becomecharity.org.uk/contact](https://www.becomecharity.org.uk/contact)
 
 **Citizens Advice**  
 [https://www.citizensadvice.org.uk/about-us/contact-us/contact-us/contact-us/](https://www.citizensadvice.org.uk/about-us/contact-us/contact-us/contact-us/)
