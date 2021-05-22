@@ -3,7 +3,7 @@
 ![Leaving Care Image](./40366.jpg)
 
 
-This portal has links to websites giving information about the support available to you if you’re leaving care, or if you’ve already left and are under 25, so you can set yourself up for a successful future. I have included topics like money and homelessness so you can find where to ask for help. I hope you find it useful.
+This portal has links to websites giving information about the support available to you if you’re leaving care, or if you’ve already left, so you can set yourself up for a successful future. I have included topics like money, homelessness and mental health so you can find where to ask for help. I hope you find it useful.
 
 EMILY FOSTER
 
