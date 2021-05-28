@@ -29,8 +29,12 @@ A traineeship is work preparation training to give 16 to 24 year olds the skills
 
 Try **Jobsearch** [https://www.gov.uk/jobsearch](https://www.gov.uk/jobsearch)
 
-An organisation that is very supportive to care leavers is **Kier**, a construction company. You don’t need any qualifications to apply for an apprenticeship
+
+Two construction companies that are very supportive to care leavers and you don't need any qualifications to apply for an apprenticeship:
+
+**Kier**
 [http://www.kier.co.uk/earlycareers/apprentices/what-we-look-for.aspx](http://www.kier.co.uk/earlycareers/apprentices/what-we-look-for.aspx)
+**Galldris** [https://www.galldris.co.uk/apprenticeship-programme/](https://www.galldris.co.uk/apprenticeship-programme/)
 
 Apprenticeship and school leaver job vacancies
 [Www.careermap.co.uk](http://Www.careermap.co.uk)
