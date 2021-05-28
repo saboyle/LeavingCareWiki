@@ -31,6 +31,7 @@ Try **Jobsearch** [https://www.gov.uk/jobsearch](https://www.gov.uk/jobsearch)
 
 
 Two construction companies that are very supportive of care leavers and you don't need any qualifications to apply for an apprenticeship:
+
 **Kier**
 [http://www.kier.co.uk/earlycareers/apprentices/what-we-look-for.aspx](http://www.kier.co.uk/earlycareers/apprentices/what-we-look-for.aspx)
 
