@@ -70,6 +70,21 @@ Additional money you may be entitled to if you are going to go to university
 
 *
 
+### If you are getting into debt contact any of these organisations for advice on how to deal with it:###
+
+**Citizens Advice**
+[https://www.citizensadvice.org.uk/about-us/contact-us/contact-us/contact-us/#txt_getadvice_header-Anchor-search](https://www.citizensadvice.org.uk/about-us/contact-us/contact-us/contact-us/#txt_getadvice_header-Anchor-search)
+
+**Step Change**
+[https://www.stepchange.org/how-we-help/debt-advice.aspx](https://www.stepchange.org/how-we-help/debt-advice.aspx)
+
+**National Debtline**
+[https://www.nationaldebtline.org](https://www.nationaldebtline.org)
+
+
+*
+
+
 ### Charities you can contact to apply for grants to help you:
 
 **The Spark Foundation**
@@ -86,3 +101,5 @@ Additional money you may be entitled to if you are going to go to university
 
 **Turn2Us**
 [https://www.turn2us.org.uk](https://www.turn2us.org.uk)
+
+
