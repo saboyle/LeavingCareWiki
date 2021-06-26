@@ -70,7 +70,7 @@ Additional money you may be entitled to if you are going to go to university
 
 *
 
-### If you are getting into debt contact any of these organisations for advice on how to deal with it:###
+### If you are getting into debt contact any of these organisations for advice on how to deal with it:
 
 **Citizens Advice**
 [https://www.citizensadvice.org.uk/about-us/contact-us/contact-us/contact-us/#txt_getadvice_header-Anchor-search](https://www.citizensadvice.org.uk/about-us/contact-us/contact-us/contact-us/#txt_getadvice_header-Anchor-search)
