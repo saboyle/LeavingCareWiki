@@ -14,6 +14,7 @@ Whatever age you are you can contact your local **Jobcentre Plus** for help. Jus
 If you're claiming Universal Credit and are aged 16 to 24 ask at the Jobcentre about joining the **Kickstart Scheme**
 [https://jobhelp.campaign.gov.uk/kickstart/](https://jobhelp.campaign.gov.uk/kickstart/)
 
+
 *
 
 **What is a traineeship?**
@@ -39,6 +40,9 @@ Two construction companies that are very supportive of care leavers and you don'
 [http://www.kier.co.uk/earlycareers/apprentices/what-we-look-for.aspx](http://www.kier.co.uk/earlycareers/apprentices/what-we-look-for.aspx)
 
 **Galldris** [https://www.galldris.co.uk/apprenticeship-programme/](https://www.galldris.co.uk/apprenticeship-programme/)
+
+If you are looking at this website on a mobile phone or tablet you can get this app called the Care Leaver Covenant which shows job and other opportunities specifically for care leavers 
+[https://mycovenant.org.uk/get-the-app/](https://mycovenant.org.uk/get-the-app/)
 
 
 Apprenticeship and school leaver job vacancies
