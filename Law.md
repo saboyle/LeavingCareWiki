@@ -13,7 +13,7 @@ If you need help from somewhere else then contact one of these organisations:
 * **Just For Kids Law** (provides 24 hour helpline if you have been taken to a police station) [https://www.justforkidslaw.org/contact-us/](https://www.justforkidslaw.org/contact-us/)
 
 * **Youth Justice Legal Centre** (provides advice on 'stop and search' and what happens at police interviews)
-* [http://www.yjlc.uk/advice-line/advice-children-young-people-and-their-families](http://www.yjlc.uk/advice-line/advice-children-young-people-and-their-families)
+ [http://www.yjlc.uk/advice-line/advice-children-young-people-and-their-families](http://www.yjlc.uk/advice-line/advice-children-young-people-and-their-families)
 
 
 Legal advisers who can help with your problems with things like 
