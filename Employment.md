@@ -41,8 +41,12 @@ Two construction companies that are very supportive of care leavers and you don'
 
 **Galldris** [https://www.galldris.co.uk/apprenticeship-programme/](https://www.galldris.co.uk/apprenticeship-programme/)
 
-If you are looking at this website on a mobile phone or tablet you can get this app called the Care Leaver Covenant which shows job and other opportunities specifically for care leavers 
-[https://mycovenant.org.uk/get-the-app/](https://mycovenant.org.uk/get-the-app/)
+
+
+**The Care Leaver Covenant**
+Organisations that have promised to provide job and other opportunities specifically for care leavers
+[https://mycovenant.org.uk/for-care-leavers/connects/](https://mycovenant.org.uk/for-care-leavers/connects/)
+
 
 
 Apprenticeship and school leaver job vacancies
