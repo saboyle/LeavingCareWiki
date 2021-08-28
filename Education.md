@@ -55,7 +55,7 @@ Here are the websites for some of the universities offering special support:
 [https://www1.bournemouth.ac.uk/study/undergraduate/studying-us/information-care-leavers](https://www1.bournemouth.ac.uk/study/undergraduate/studying-us/information-care-leavers)
 
 **Edge Hill University, Ormskirk, Lancashire**
-[https://www.edgehill.ac.uk/studentservices/care-leavers/](https://www.edgehill.ac.uk/studentservices/care-leavers/)
+[https://www.edgehill.ac.uk/news/2021/04/edge-hill-signs-the-care-leaver-covenant/](https://www.edgehill.ac.uk/news/2021/04/edge-hill-signs-the-care-leaver-covenant/)
 
 **University of Cambridge**
 [http://www.undergraduate.study.cam.ac.uk/why-cambridge/support/care-leaver-support](http://www.undergraduate.study.cam.ac.uk/why-cambridge/support/care-leaver-support)
