@@ -42,29 +42,43 @@ Here are the websites for some of the universities offering special support:
 **University of London**
 [https://www.welfare.qmul.ac.uk/money/undergraduates/care-experienced-students/](https://www.welfare.qmul.ac.uk/money/undergraduates/care-experienced-students/)
 
+
+**Brunel University, London**
+[https://www.brunel.ac.uk/study/schools-and-colleges/widening-access/Care-Leavers](https://www.brunel.ac.uk/study/schools-and-colleges/widening-access/Care-Leavers)
+**Postgraduate study support at Brunel** [https://www.brunel.ac.uk/news-and-events/news/articles/Applications-open-for-5000-Santander-care-leaver-bursary](https://www.brunel.ac.uk/news-and-events/news/articles/Applications-open-for-5000-Santander-care-leaver-bursary)
+
+
 **Bristol University**
 [https://www.uwe.ac.uk/life/health-and-wellbeing/uwe-cares/care-leavers](https://www.uwe.ac.uk/life/health-and-wellbeing/uwe-cares/care-leavers)
+
 
 **University of Bath**
 [https://www.bath.ac.uk/guides/additional-support-and-funding-for-care-leavers-foyer-residents-and-estranged-students/](https://www.bath.ac.uk/guides/additional-support-and-funding-for-care-leavers-foyer-residents-and-estranged-students/)
 
+
 **University of Birmingham**
 [http://www.birmingham.ac.uk/undergraduate/requirements/care-leavers.aspx](http://www.birmingham.ac.uk/undergraduate/requirements/care-leavers.aspx)
+
 
 **Bournemouth University**
 [https://www1.bournemouth.ac.uk/study/undergraduate/studying-us/information-care-leavers](https://www1.bournemouth.ac.uk/study/undergraduate/studying-us/information-care-leavers)
 
+
 **Edge Hill University, Ormskirk, Lancashire**
 [https://www.edgehill.ac.uk/news/2021/04/edge-hill-signs-the-care-leaver-covenant/](https://www.edgehill.ac.uk/news/2021/04/edge-hill-signs-the-care-leaver-covenant/)
+
 
 **University of Cambridge**
 [http://www.undergraduate.study.cam.ac.uk/why-cambridge/support/care-leaver-support](http://www.undergraduate.study.cam.ac.uk/why-cambridge/support/care-leaver-support)
 
+
 **University of Essex, Colchester**
 [https://www1.essex.ac.uk/students/groups/care-leavers.aspx](https://www1.essex.ac.uk/students/groups/care-leavers.aspx)
 
+
 **University of Wales, Swansea**
 [https://www.uwtsd.ac.uk/care/](https://www.uwtsd.ac.uk/care/)
+
 
 **University of Edinburgh** 
 [https://www.ed.ac.uk/studying/undergraduate/access-edinburgh/carers-care-experience/care-experienced](https://www.ed.ac.uk/studying/undergraduate/access-edinburgh/carers-care-experience/care-experienced)
