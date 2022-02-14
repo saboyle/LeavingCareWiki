@@ -33,11 +33,6 @@ or **The Prince’s Trust**
 *
 
 
-**National Care Leavers Week 25 - 31 October 2021**
-[https://www.becomecharity.org.uk/improving-the-care-system/national-care-leavers-week/?fbclid=IwAR2vgueSXiE9rXj0rND5TAvT6uErF525MzvRjd3ekb2m2R810xJnBb9IGOI](https://www.becomecharity.org.uk/improving-the-care-system/national-care-leavers-week/?fbclid=IwAR2vgueSXiE9rXj0rND5TAvT6uErF525MzvRjd3ekb2m2R810xJnBb9IGOI)
-
-*
-
 
 ### And always remember you are all my heroes!
 
@@ -45,6 +40,6 @@ or **The Prince’s Trust**
 *
 
 
-**Content by Emily Foster 2020/updated 2021**
+**Content by Emily Foster 2020/updated 2021/2022**
 
 **Site created by Steve Boyle 2020**
