@@ -17,7 +17,7 @@ If you need help from somewhere else then contact one of these organisations:
 
 
 Legal advisers who can help with your problems with things like 
-housing and if you think something that’s happened to you is unfair
+housing and if you feel something that’s happened to you is unfair or abusive, including sexual abuse
 
 * **Coram Voice** [https://coramvoice.org.uk](https://coramvoice.org.uk)
 
