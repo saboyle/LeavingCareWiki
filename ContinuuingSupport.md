@@ -28,6 +28,11 @@ or **The Prince’s Trust**
 
 *
 
+For help with issues arising from having been sexually abused or suffered other trauma, contact **One in Four** [https://oneinfour.org.uk](https://oneinfour.org.uk)
+
+
+*
+
 **Care leavers tell their own stories here** [http://inspire-me-live.herokuapp.com](http://inspire-me-live.herokuapp.com)
 
 *
