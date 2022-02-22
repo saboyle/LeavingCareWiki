@@ -28,7 +28,7 @@ or **The Prince’s Trust**
 
 *
 
-For help with issues arising from having been sexually abused or suffered other trauma, contact **One in Four** [https://oneinfour.org.uk](https://oneinfour.org.uk)
+For help with issues arising from having been sexually abused or having suffered other trauma, contact **One in Four** [https://oneinfour.org.uk](https://oneinfour.org.uk)
 
 
 *
