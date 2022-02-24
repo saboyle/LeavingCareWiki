@@ -33,7 +33,7 @@ For help with issues arising from having been sexually abused or having suffered
 
 *
 
-**Care leavers tell their own stories here** [http://inspire-me-live.herokuapp.com](http://inspire-me-live.herokuapp.com)
+**A list of incredible people who were adopted, fostered or lived in children's homes** [https://blog.lemnsissay.com/2019/04/09/a-list-of-incredible-uk-people-who-were-fostered-adopted-or-in-childrens-homes/](https://blog.lemnsissay.com/2019/04/09/a-list-of-incredible-uk-people-who-were-fostered-adopted-or-in-childrens-homes/)
 
 *
 
