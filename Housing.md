@@ -25,6 +25,8 @@ Contact your **Personal Adviser** at **Children's Services** who should treat yo
 
 **Shelter**  [https://england.shelter.org.uk/housing_advice/homelessness/temporary_housing_if_youre_homeless/help_if_youre_16_to_25_years_old](https://england.shelter.org.uk/housing_advice/homelessness/temporary_housing_if_youre_homeless/help_if_youre_16_to_25_years_old)
 
+To apply for a bank account if you're homeless and receiving help from Shelter [https://www.hsbc.co.uk/help/money-worries/no-fixed-address/](https://www.hsbc.co.uk/help/money-worries/no-fixed-address/)
+
 
 **Are you sleeping rough?** 
 [https://centrepoint.org.uk/youth-homelessness/get-help-now/i-am-a-young-person/help-when-youre-sleeping-rough/](https://centrepoint.org.uk/youth-homelessness/get-help-now/i-am-a-young-person/help-when-youre-sleeping-rough/)
