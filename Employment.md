@@ -28,7 +28,9 @@ A traineeship is work preparation training to give 16 to 24 year olds the skills
 **Find an apprenticeship**
 [https://www.findapprenticeship.service.gov.uk](https://www.findapprenticeship.service.gov.uk/apprenticeshipsearch?searchMode=Keyword)
 
-Try **Jobsearch** [https://www.gov.uk/jobsearch](https://www.gov.uk/jobsearch)
+*
+
+**Jobsearch** [https://www.gov.uk/jobsearch](https://www.gov.uk/jobsearch)
 
 *
 
