@@ -59,7 +59,7 @@ A charity that can help you get your job search started and give you the confide
 
 *
 
-You will need a typed **CV** telling people about you to give to the person at the place you are applying to for a job or to send to the companies you would like to work for. create and download a cv here [https://www.reed.co.uk/career-advice/school-leaver-cv-template/](https://www.reed.co.uk/career-advice/school-leaver-cv-template/)
+You will need a typed **CV** telling people about you to give to the person at the place you are applying to for a job or to send to the companies you would like to work for. Create and download a cv here [https://careercompanion.cv-creator.com](https://careercompanion.cv-creator.com)
 
 
 *
