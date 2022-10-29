@@ -70,7 +70,7 @@ Here are the websites for some of the universities offering special support:
 
 
 **Edge Hill University, Ormskirk, Lancashire**
-[https://www.edgehill.ac.uk/news/2021/04/edge-hill-signs-the-care-leaver-covenant/](https://www.edgehill.ac.uk/news/2021/04/edge-hill-signs-the-care-leaver-covenant/)
+[https://www.edgehill.ac.uk/departments/support/studentservices/student-support-team/students-without-family-support/](https://www.edgehill.ac.uk/departments/support/studentservices/student-support-team/students-without-family-support/)
 
 
 **University of Cambridge**
