@@ -17,11 +17,11 @@ If you are moved to a place where you don’t feel safe for any reason then tell
 
 Contact your **Personal Adviser** at **Children's Services** who should treat you as what they call a ‘child in need’ of emergency accommodation. If you don’t get support from the council these sites can help:
 
+Find homeless accommodation near you by going to **Google Maps** and typing your town into the search and then 'homeless shelter'. The nearest places are then listed.
+
+*Or contact:*
+
 **Centrepoint** [https://centrepoint.org.uk/what-we-do/](https://centrepoint.org.uk/what-we-do/)
-
-
-**Homeless Accommodation Near Me**  [https://near-me.store/en/homeless-accommodation-near-me](https://near-me.store/en/homeless-accommodation-near-me)
-
 
 **Shelter**  [https://england.shelter.org.uk/housing_advice/homelessness/temporary_housing_if_youre_homeless/help_if_youre_16_to_25_years_old](https://england.shelter.org.uk/housing_advice/homelessness/temporary_housing_if_youre_homeless/help_if_youre_16_to_25_years_old)
 
