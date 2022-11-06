@@ -21,7 +21,7 @@ Find homeless accommodation near you by going to **Google Maps** and typing your
 
 Or contact:
 
-**Centrepoint** [https://centrepoint.org.uk/what-we-do/](https://centrepoint.org.uk/what-we-do/)
+**Centrepoint** [https://centrepoint.org.uk/youth-homelessness/get-help-now/](https://centrepoint.org.uk/youth-homelessness/get-help-now/)
 
 or
 
