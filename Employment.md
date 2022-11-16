@@ -43,10 +43,6 @@ Organisations that have promised to provide job and other opportunities specific
 
 *
 
-**Drive Forward** is an organisation offering mentoring and help to get you a job [https://driveforwardfoundation.org/help-for-young-people/](https://driveforwardfoundation.org/help-for-young-people/)
-
-*
-
 Apprenticeship and school leaver job vacancies
 [Www.careermap.co.uk](http://Www.careermap.co.uk)
 
