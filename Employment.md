@@ -3,10 +3,17 @@
 
 If you are 16 or 17 and not in education then you will have to do a **traineeship, an apprenticeship or get a job** 
 
+Your **Personal Adviser** should help you find out what will be best for you. 
+
+*
+
+A traineeship is work preparation training to give 16 to 24 year olds the skills that might be needed to apply for apprenticeships and jobs. 
+
+
+
 Find out what job you would be good at here [https://nationalcareers.service.gov.uk/skills-assessment](https://nationalcareers.service.gov.uk/skills-assessment)
 
 
-You should ask your **Personal Adviser** how to take steps towards doing work you're interested in.
 
 
 If you would like help getting the confidence and skills you need to apply for an apprenticeship or a job **The Prince's Trust**offers support and training [https://www.princes-trust.org.uk/help-for-young-people/get-job](https://www.princes-trust.org.uk/help-for-young-people/get-job)
