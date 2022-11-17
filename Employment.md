@@ -6,7 +6,14 @@ If you are 16 or 17 and not in education then you will have to do a **traineeshi
 Find out what job you would be good at here [https://nationalcareers.service.gov.uk/skills-assessment](https://nationalcareers.service.gov.uk/skills-assessment)
 
 
+You should ask your **Personal Adviser** how to take steps towards doing work you're interested in.
+
+
+If you would like help getting the confidence and skills you need to apply for an apprenticeship or a job **The Prince's Trust**offers support and training [https://www.princes-trust.org.uk/help-for-young-people/get-job](https://www.princes-trust.org.uk/help-for-young-people/get-job)
+
+
 *
+
 
 Whatever age you are you can contact your local **Jobcentre Plus** for help. Just click on the magnifying glass and type in the town or postcode where you are to find the nearest one
 [https://www.totaljobs.com/careers-advice/job-centres/job-centres](https://www.totaljobs.com/careers-advice/job-centres/job-centres)
@@ -28,9 +35,7 @@ A traineeship is work preparation training to give 16 to 24 year olds the skills
 **Find an apprenticeship**
 [https://www.findapprenticeship.service.gov.uk](https://www.findapprenticeship.service.gov.uk/apprenticeshipsearch?searchMode=Keyword)
 
-*
-
-**Jobsearch** [https://www.gov.uk/jobsearch](https://www.gov.uk/jobsearch)
+**Careermap** for apprenticeships and jobs [https://careermap.co.uk](https://careermap.co.uk)
 
 *
 
@@ -44,8 +49,7 @@ Organisations that have promised to provide job and other opportunities specific
 *
 
 
-Apprenticeship and school leaver job vacancies
-[Www.careermap.co.uk](http://Www.careermap.co.uk)
+**Find a Job** a website provided by the Government [https://www.gov.uk/find-a-job](https://www.gov.uk/find-a-job)
 
 
 *
@@ -53,13 +57,6 @@ Apprenticeship and school leaver job vacancies
 
 Type the word ‘trainee’ or other job title into the ‘What’ box of this job search site
 [https://www.indeed.co.uk/m/#](https://www.indeed.co.uk/m/#)
-
-
-*
-
-
-A charity that can help you get your job search started and give you the confidence and skills you need to apply for jobs is **The Prince's Trust**
-[https://www.princes-trust.org.uk/help-for-young-people/get-job](https://www.princes-trust.org.uk/help-for-young-people/get-job)
 
 
 *
