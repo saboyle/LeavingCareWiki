@@ -3,20 +3,21 @@
 
 If you are 16 or 17 and not in education then you will have to do a **traineeship, an apprenticeship or get a job** 
 
-Your **Personal Adviser** should help you find out what will be best for you. 
+Your **Personal Adviser** should help you decide what you would like to do
+
+Find out what type of work you would be good at here [https://nationalcareers.service.gov.uk/skills-assessment](https://nationalcareers.service.gov.uk/skills-assessment)
 
 *
 
-A traineeship is work preparation training to give 16 to 24 year olds the skills that might be needed to apply for apprenticeships and jobs. 
+A **traineeship** is work preparation training to give 16 to 24 year olds the skills that might be needed to apply for apprenticeships and jobs
+
+Find a traineeship here [https://www.gov.uk/find-traineeship](https://www.gov.uk/find-traineeship)
 
 
-
-Find out what job you would be good at here [https://nationalcareers.service.gov.uk/skills-assessment](https://nationalcareers.service.gov.uk/skills-assessment)
-
+*
 
 
-
-If you would like help getting the confidence and skills you need to apply for an apprenticeship or a job **The Prince's Trust**offers support and training [https://www.princes-trust.org.uk/help-for-young-people/get-job](https://www.princes-trust.org.uk/help-for-young-people/get-job)
+If you would like help getting the confidence and skills you need to apply for an apprenticeship or a job **The Prince's Trust** offers support and training [https://www.princes-trust.org.uk/help-for-young-people/get-job](https://www.princes-trust.org.uk/help-for-young-people/get-job)
 
 
 *
@@ -26,13 +27,7 @@ Whatever age you are you can contact your local **Jobcentre Plus** for help. Jus
 [https://www.totaljobs.com/careers-advice/job-centres/job-centres](https://www.totaljobs.com/careers-advice/job-centres/job-centres)
 
 
-*
 
-**What is a traineeship?**
-A traineeship is work preparation training to give 16 to 24 year olds the skills you will need to get an apprenticeship or a job
-
-**Find a traineeship**
-[https://www.gov.uk/find-traineeship](https://www.gov.uk/find-traineeship)
 
 *
 
