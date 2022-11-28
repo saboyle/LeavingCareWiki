@@ -44,7 +44,7 @@ Whatever age you are you can contact your local **Jobcentre Plus** for help. Jus
 
 ### The Care Leaver Covenant
 
-Companies that have promised to provide job and other opportunities specifically for care leavers
+Employers that provide job and other opportunities specifically for care leavers
 [https://mycovenant.org.uk/for-care-leavers/connects/](https://mycovenant.org.uk/for-care-leavers/connects/)
 
 
@@ -54,10 +54,7 @@ Companies that have promised to provide job and other opportunities specifically
 **Find a Job** a website provided by the Government [https://www.gov.uk/find-a-job](https://www.gov.uk/find-a-job)
 
 
-*
-
-
-Type the word ‘trainee’ or other job title into the ‘What’ box of this job search site
+**Indeed** Type the word ‘trainee’ or other job title into the ‘What’ box of this job search site
 [https://www.indeed.co.uk/m/#](https://www.indeed.co.uk/m/#)
 
 
