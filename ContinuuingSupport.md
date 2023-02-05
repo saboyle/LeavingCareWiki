@@ -29,11 +29,6 @@ or **Coram Voice**
 
 *
 
-For help with issues arising from having been sexually abused or having suffered other trauma, contact **One in Four** [https://oneinfour.org.uk](https://oneinfour.org.uk)
-
-
-*
-
 **A list of incredible people who were adopted, fostered or lived in children's homes** [https://blog.lemnsissay.com/2019/04/09/a-list-of-incredible-uk-people-who-were-fostered-adopted-or-in-childrens-homes/](https://blog.lemnsissay.com/2019/04/09/a-list-of-incredible-uk-people-who-were-fostered-adopted-or-in-childrens-homes/)
 
 *
