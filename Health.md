@@ -41,7 +41,7 @@ If you feel you need help with something that happened to you, maybe you were hu
 [https://turn2me.ie/?gclid=EAIaIQobChMIqN7fwpL61QIVZLftCh3zswLzEAAYASAAEgLg7_D_BwE](https://turn2me.ie/?gclid=EAIaIQobChMIqN7fwpL61QIVZLftCh3zswLzEAAYASAAEgLg7_D_BwE)
 
 
-If you have experienced trauma or sexual abuse contact **One in Four** [https://oneinfour.org.uk](https://oneinfour.org.uk)
+If you have experienced sexual abuse or violence, contact **One in Four** [https://oneinfour.org.uk](https://oneinfour.org.uk)
 
 *
 
