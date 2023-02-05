@@ -24,8 +24,7 @@ or **Coram Voice**
 [https://coramvoice.org.uk](https://coramvoice.org.uk)
 
 
-or **The Prince’s Trust**
-[https://www.princes-trust.org.uk](https://www.princes-trust.org.uk)
+**The Prince's Trust** offers help with building your confidence so you can find out what you would like to do with your life and support to help you find a job or start a business [https://www.princes-trust.org.uk/help-for-young-people/programmes](https://www.princes-trust.org.uk/help-for-young-people/programmes)
 
 
 *
