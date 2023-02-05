@@ -9,6 +9,7 @@ Need to find your nearest **Urgent Care Centre** (if you're hurt but can get to 
 Need to find a **GP (doctor) or an NHS dentist?** [https://www.nhs.uk/service-search/](https://www.nhs.uk/service-search/)
 
 
+
 **Drug problems?**
 Contact the helpline at **Talk to Frank** [https://www.talktofrank.com/get-help/find-support-near-you](https://www.talktofrank.com/get-help/find-support-near-you)
    
@@ -19,11 +20,13 @@ Contact the helpline at **Talk to Frank** [https://www.talktofrank.com/get-help/
 
 
 **Sexual Health**
+
 NHS Services  
 [https://www.nhs.uk/service-search/other-services/Sexual%20health%20services/LocationSearch/1847](https://www.nhs.uk/service-search/other-services/Sexual%20health%20services/LocationSearch/1847)
 
 Sexual health services specifically for under 25s  [https://legacy.brook.org.uk/find-a-service](https://legacy.brook.org.uk/find-a-service)
      
+ 
  
  
  
@@ -41,6 +44,7 @@ If you feel you need help with something that happened to you, maybe you were hu
 
 **turn2me** an organisation that can help you sort out your feelings
 [https://turn2me.ie/?gclid=EAIaIQobChMIqN7fwpL61QIVZLftCh3zswLzEAAYASAAEgLg7_D_BwE](https://turn2me.ie/?gclid=EAIaIQobChMIqN7fwpL61QIVZLftCh3zswLzEAAYASAAEgLg7_D_BwE)
+
 
 
 If you have experienced sexual abuse or violence, contact **One in Four** [https://oneinfour.org.uk](https://oneinfour.org.uk)
