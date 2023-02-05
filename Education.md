@@ -62,7 +62,7 @@ Here are the websites for some of the universities offering special support:
 
 
 **University of Birmingham**
-[http://www.birmingham.ac.uk/undergraduate/requirements/care-leavers.aspx](http://www.birmingham.ac.uk/undergraduate/requirements/care-leavers.aspx)
+[https://www.birmingham.ac.uk/undergraduate/fees/funding/scholarships/Care-Leaver-Scholarship.aspx](https://www.birmingham.ac.uk/undergraduate/fees/funding/scholarships/Care-Leaver-Scholarship.aspx)
 
 
 **Bournemouth University**
