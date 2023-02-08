@@ -1,6 +1,6 @@
 ## Education /  Training
 
-If you decide to leave school at 16 and would like to find out about getting practical skills like building or more qualifications like GCSEs in English and maths, A levels or Diplomas (this is called ‘**Further Education**’), click here
+If you decide to leave school at 16 and would like to find out about getting practical skills like building or more qualifications like GCSEs in English and maths, T Levels, A levels or Diplomas (this is called ‘**Further Education**’), click here
 [https://nationalcareers.service.gov.uk/find-a-course](https://nationalcareers.service.gov.uk/find-a-course)
 
 *
