@@ -26,7 +26,7 @@ If you would like help getting the confidence and skills you need to apply for a
 Whatever age you are you can contact your local **Jobcentre Plus** for help. Just click on the magnifying glass and type in the town or postcode where you are to find the nearest one
 [https://www.totaljobs.com/careers-advice/job-centres/job-centres](https://www.totaljobs.com/careers-advice/job-centres/job-centres)
 
-You are entitled to apply at the Jobcentre for work experience in the type of job you're interested in under what's called the Sector-based Work Academy Programme, **SWAPS** for short.
+You are entitled to apply at the Jobcentre for work experience in the type of job you're interested in.
 
 
 *
