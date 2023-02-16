@@ -22,7 +22,8 @@ Contact the helpline at **Talk to Frank** [https://www.talktofrank.com/get-help/
 
 
 
-**Sexual Health**
+
+##Sexual Health
 
 **NHS Services**  
 [https://www.nhs.uk/service-search/other-services/Sexual%20health%20services/LocationSearch/1847](https://www.nhs.uk/service-search/other-services/Sexual%20health%20services/LocationSearch/1847)
