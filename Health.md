@@ -14,6 +14,7 @@ Need to find a **GP (doctor) or an NHS dentist?** [https://www.nhs.uk/service-se
 
 
 
+
 **Drug problems?**
 Contact the helpline at **Talk to Frank** [https://www.talktofrank.com/get-help/find-support-near-you](https://www.talktofrank.com/get-help/find-support-near-you)
    
@@ -24,7 +25,7 @@ Contact the helpline at **Talk to Frank** [https://www.talktofrank.com/get-help/
 
 
 
-**Sexual Health Services
+**Sexual Health Services**
  
 [https://www.nhs.uk/service-search/other-services/Sexual%20health%20services/LocationSearch/1847](https://www.nhs.uk/service-search/other-services/Sexual%20health%20services/LocationSearch/1847)
 
