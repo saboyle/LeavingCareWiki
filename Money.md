@@ -27,7 +27,6 @@ This requires quite a lot of information and needs to be done online. You can as
 **National Youth Advocacy Service**
 [https://www.nyas.net/contact-us/](https://www.nyas.net/contact-us/)
 
-
 *
 
 If you’re going to college or doing a training course then see what funding you are entitled to
