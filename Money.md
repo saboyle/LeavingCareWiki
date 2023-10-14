@@ -25,8 +25,7 @@ This requires quite a lot of information and needs to be done online. You can as
 [https://coramvoice.org.uk](https://coramvoice.org.uk)
 
 **National Youth Advocacy Service**
-[https://www.nyas.net](https://www.nyas.net)
-
+[https://www.nyas.net/get-support/support-for-young-people/care-leaver-support/](https://www.nyas.net/get-support/support-for-young-people/care-leaver-support/)
 *
 
 If you’re going to college or doing a training course then see what funding you are entitled to
