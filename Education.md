@@ -22,7 +22,7 @@ Find out what funding is available for your college course
 [http://propel.org.uk/UK/?country=uk](http://propel.org.uk/UK/?country=uk)
 
 A university student’s story 
-[http://propel.org.uk/stories/zions-story/](http://propel.org.uk/stories/zions-story/)
+[https://becomecharity.org.uk/inspiration/zions-story/](https://becomecharity.org.uk/inspiration/zions-story/)
 
 A Youtube film of care leavers at university
 [https://m.youtube.com/watch?v=NN2T0D6mW2Y](https://m.youtube.com/watch?v=NN2T0D6mW2Y)
