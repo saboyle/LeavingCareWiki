@@ -3,8 +3,8 @@
 If you decide to leave school at 16 and would like to find out about getting practical skills like plumbing or more qualifications such as GCSEs in English and maths, T Levels, A levels or Diplomas (this is called ‘**Further Education**’) touch the link
 [https://nationalcareers.service.gov.uk/find-a-course](https://nationalcareers.service.gov.uk/find-a-course)
 
-(T levels are a new qualification, this link explains what they are [https://nationalcareers.service.gov.uk/explore-your-education-and-training-choices/t-levels](https://nationalcareers.service.gov.uk/explore-your-education-and-training-choices/t-levels))
-
+T levels are a new qualification, this site explains what they are
+[https://www.tlevels.gov.uk](https://www.tlevels.gov.uk)
 
 *
 
