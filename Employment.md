@@ -32,7 +32,7 @@ You are entitled to apply at the Jobcentre for work experience in the type of jo
 *
 
 **What is an apprenticeship?**
-[https://www.apprenticeships.gov.uk/apprentice/what-is-an-apprenticeship](https://www.apprenticeships.gov.uk/apprentice/what-is-an-apprenticeship)
+
 [https://amazingapprenticeships.com/app/uploads/2021/10/Care-Leavers-Guide-to-Apprenticeship_Jan2023.pdf](https://amazingapprenticeships.com/app/uploads/2021/10/Care-Leavers-Guide-to-Apprenticeship_Jan2023.pdf)
 
 **Find an apprenticeship**
