@@ -100,8 +100,8 @@ Additional money you may be entitled to if you are going to go to university
 **The Capstone Care Leavers Trust**
 [https://www.capstonecareleaverstrust.org/how-we-can-help/](https://www.capstonecareleaverstrust.org/how-we-can-help/)
 
-**The Prince’s Trust**
-[https://www.princes-trust.org.uk/help-for-young-people/get-funding-train-learn](https://www.princes-trust.org.uk/help-for-young-people/get-funding-train-learn)
+**The King's Trust (formerly The Prince's Trust)**
+[//www.princes-trust.org.uk/help-for-young-people/get-funding-train-learn](https://www.princes-trust.org.uk/help-for-young-people/get-funding-train-learn)
 
 **Turn2Us**
 [https://www.turn2us.org.uk](https://www.turn2us.org.uk)
