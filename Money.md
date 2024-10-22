@@ -40,11 +40,14 @@ after age 16
 The **Education Maintenance Allowance** has been closed in England but is still available if you are studying in Scotland, Wales or Northern Ireland. 
 [https://www.gov.uk/education-maintenance-allowance-ema](https://www.gov.uk/education-maintenance-allowance-ema)
 
-In Scotland you can also apply for these benefits
-[https://scotland.shelter.org.uk/get_advice/advice_topics/paying_for_a_home/other_benefits_grants_and_loans/community_care_grants](https://scotland.shelter.org.uk/get_advice/advice_topics/paying_for_a_home/other_benefits_grants_and_loans/community_care_grants)
+This site sets out the benefits available to care leavers in Scotland [https://scotland.shelter.org.uk/housing_advice/money_help/leaving_care](https://scotland.shelter.org.uk/housing_advice/money_help/leaving_care)
+
 
 In England the Education Maintenance Allowance has been replaced with the **16-19 Bursary**. You are entitled to £1,200 every year if you are still at school or college
 [https://www.gov.uk/1619-bursary-fund](https://www.gov.uk/1619-bursary-fund)
+
+
+
 
 *
 
