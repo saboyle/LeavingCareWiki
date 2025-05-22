@@ -6,11 +6,12 @@ You can leave school on the last Friday in June if you will be 16 by the end of 
 
 You then have to do one of the following until you are 18: 
 
-* start an apprenticeship
-           
-* get a job that includes training
-           
 * stay in full time education at school or college
+           
+* start an apprenticeship [https://www.gov.uk/become-apprentice](https://www.gov.uk/become-apprentice)
+
+* spend 20 hours or more a week working part-time or volunteering, while in part-time education or training
+
 
 When you leave care **Children's Services** at your local council must make sure you have a **Personal Adviser** who should help you decide what you want to do next, make sure you've got somewhere to live and enough money until you are 18 then continue to support you until you’re 25
 
