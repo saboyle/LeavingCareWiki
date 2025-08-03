@@ -69,10 +69,13 @@ Additional money you may be entitled to if you are going to go to university
 
 *
 
-**How to open a bank account**
-[http://www.money.co.uk/current-accounts/bank-accounts-for-teenagers.htm](http://www.money.co.uk/current-accounts/bank-accounts-for-teenagers.htm)
+**You will need a bank account to get your benefits and wages paid into**
+
+[https://www.co-operativebank.co.uk/products/bank-accounts/basic-bank-account/](https://www.co-operativebank.co.uk/products/bank-accounts/basic-bank-account/)
+
 
 *
+
 
 ### If you are getting into debt contact any of these organisations for advice on how to deal with it:
 
