@@ -71,8 +71,11 @@ Additional money you may be entitled to if you are going to go to university
 
 **You will need a bank account to get your benefits and wages paid into**
 You can set up a bank account at the Post Office so you can pay in and withdraw cash at any branch. Find the nearest post office to where you are:
-[https://www.postoffice.co.uk/everydaybanking](https://www.postoffice.co.uk/everydaybanking)
+[https://www.postoffice.co.uk/branch-finder](https://www.postoffice.co.uk/branch-finder)
 
+
+
+You might prefer to do your banking online; this is a basic bank account with the Co-Op. Once you've opened an account it is very easy to switch if you find one you prefer
 
 [https://www.co-operativebank.co.uk/products/bank-accounts/basic-bank-account/](https://www.co-operativebank.co.uk/products/bank-accounts/basic-bank-account/)
 
