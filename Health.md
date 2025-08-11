@@ -54,13 +54,7 @@ If you feel you need help with something that happened to you, maybe you were hu
 [https://turn2me.ie/?gclid=EAIaIQobChMIqN7fwpL61QIVZLftCh3zswLzEAAYASAAEgLg7_D_BwE](https://turn2me.ie/?gclid=EAIaIQobChMIqN7fwpL61QIVZLftCh3zswLzEAAYASAAEgLg7_D_BwE)
 
 
+**Helplines and websites for organisations to help people who have suffered any form of sexual abuse or assault at any time in their life [https://www.csacentre.org.uk/find-a-support-service/](https://www.csacentre.org.uk/find-a-support-service/) 
 
-If you have experienced sexual abuse or violence, contact **One in Four** [https://oneinfour.org.uk](https://oneinfour.org.uk)
-
-
-*
-
-
-
-A YouTube film by a man who was brought up in care (**and thinks all children and young people in care are STARS!)**
+ YouTube film by a man who was brought up in care (**and thinks all children and young people in care are STARS!)**
 [https://m.youtube.com/watch?v=Uwj5XKzOadM&t=22s](https://m.youtube.com/watch?v=Uwj5XKzOadM&t=22s)
