@@ -40,7 +40,7 @@ Contact the helpline at **Talk to Frank** [https://www.talktofrank.com/get-help/
  
 
 ## Feeling bad? (Mental Health)
-If you feel you need help with something that happened to you, maybe you were hurt in some way while you were in care or before, or you feel sad, frightened, angry or just feel bad, these telephone numbers will enable you to speak to someone who wants to help:
+If you feel you need help with something that happened to you, maybe you were hurt in some way while you were in care or before, or you feel sad, frightened, angry or just feel bad, these links show phone numbers where people are waiting to help you:
 
 
 **Childline**  [https://www.childline.org.uk/get-support/contacting-childline/](https://www.childline.org.uk/get-support/contacting-childline/)
@@ -54,7 +54,10 @@ If you feel you need help with something that happened to you, maybe you were hu
 [https://turn2me.ie/?gclid=EAIaIQobChMIqN7fwpL61QIVZLftCh3zswLzEAAYASAAEgLg7_D_BwE](https://turn2me.ie/?gclid=EAIaIQobChMIqN7fwpL61QIVZLftCh3zswLzEAAYASAAEgLg7_D_BwE)
 
 
-**Helplines and websites for organisations to help people who have suffered any form of sexual abuse or assault at any time in their life [https://www.csacentre.org.uk/find-a-support-service/](https://www.csacentre.org.uk/find-a-support-service/) 
+**Helplines** for anyone who has suffered sexual abuse or assault at any time in their life
+[https://www.csacentre.org.uk/find-a-support-service/](https://www.csacentre.org.uk/find-a-support-service/) 
+
+
 
  YouTube film by a man who was brought up in care (**and thinks all children and young people in care are STARS!)**
 [https://m.youtube.com/watch?v=Uwj5XKzOadM&t=22s](https://m.youtube.com/watch?v=Uwj5XKzOadM&t=22s)
