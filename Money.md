@@ -71,14 +71,14 @@ Additional money you may be entitled to if you are going to go to university
 
 
 **Apprenticeship Bursaries**
-If you would prefer to start work rather than stay in education, starting an apprenticeship Will make you eligible for up to £3000
+If you would prefer to start work rather than stay in education, starting an apprenticeship will make you eligible for up to £3000
 [https://www.apprenticeships.gov.uk/apprentices/support-care-experienced-apprentices](https://www.apprenticeships.gov.uk/apprentices/support-care-experienced-apprentices)
 
 
 *
 
 
-**You will need a bank account to get your wages, benefits and grants paid into**
+**You will need a bank account to get your wages, benefits or bursaries paid into**
 [https://england.shelter.org.uk/housing_advice/benefits/basic_bank_accounts_with_no_credit_check](https://england.shelter.org.uk/housing_advice/benefits/basic_bank_accounts_with_no_credit_check)
 
 Once you've opened a bank account you can do basic banking like paying bills and getting cash from a post office. You can find your local post office here:
