@@ -6,8 +6,7 @@ Need an **ambulance?  Dial 999**
 
 
 Need to find your nearest **Urgent Care Centre** (if you're hurt but can get to a clinic by yourself)
-[https://www.nhs.uk/service-search/](https://www.nhs.uk/service-search/)
-
+[https://www.nhs.uk/nhs-services/urgent-and-emergency-care-services/find-urgent-and-emergency-care-services/](https://www.nhs.uk/nhs-services/urgent-and-emergency-care-services/find-urgent-and-emergency-care-services/)
 
 Need to find a **GP (doctor) or an NHS dentist?** [https://www.nhs.uk/service-search/](https://www.nhs.uk/service-search/)
 
