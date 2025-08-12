@@ -108,7 +108,7 @@ You might prefer to do your banking online; this is a basic bank account with th
 [https://www.reesfoundation.org/crisis-payments.html](https://www.reesfoundation.org/crisis-payments.html)
 
 **The Capstone Care Leavers Trust**
-[https://www.capstonecareleaverstrust.org/how-we-can-help/](https://www.capstonecareleaverstrust.org/how-we-can-help/)
+[https://www.capstonecareleaverstrust.org/applications/apply/](https://www.capstonecareleaverstrust.org/applications/apply/)
 
 **The King's Trust (formerly The Prince's Trust)**
 [//www.princes-trust.org.uk/help-for-young-people/get-funding-train-learn](https://www.princes-trust.org.uk/help-for-young-people/get-funding-train-learn)
