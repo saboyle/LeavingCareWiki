@@ -69,8 +69,9 @@ Additional money you may be entitled to if you are going to go to university
 
 *
 
-**You will need a bank account to get your benefits and wages paid into**
-You can set up a bank account at the Post Office so you can pay in and withdraw cash at any branch. Find the nearest post office to where you are:
+**You will need a bank account to get your benefits and grants paid into**
+[
+
 [https://www.postoffice.co.uk/branch-finder](https://www.postoffice.co.uk/branch-finder)
 
 
