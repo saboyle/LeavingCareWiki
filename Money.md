@@ -105,7 +105,7 @@ You might prefer to do your banking online; this is a basic bank account with th
 [https://sparkfoundation.org.uk/apply/](https://sparkfoundation.org.uk/apply/)
 
 **Rees Foundation** (you can also contact them to apply for a crisis payment for immediate help)
-[https://www.reesfoundation.org/financial-assistance.html](https://www.reesfoundation.org/financial-assistance.html)
+[https://www.reesfoundation.org/crisis-payments.html](https://www.reesfoundation.org/crisis-payments.html)
 
 **The Capstone Care Leavers Trust**
 [https://www.capstonecareleaverstrust.org/how-we-can-help/](https://www.capstonecareleaverstrust.org/how-we-can-help/)
