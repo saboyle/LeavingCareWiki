@@ -102,7 +102,7 @@ You might prefer to do your banking online; this is a basic bank account with th
 ### Charities you can contact to apply for grants to help you:
 
 **The Spark Foundation**
-[https://www.sparkfoundation.org.uk/GrantsForm.html](https://www.sparkfoundation.org.uk/GrantsForm.html)
+[https://sparkfoundation.org.uk/apply/](https://sparkfoundation.org.uk/apply/)
 
 **Rees Foundation** (you can also contact them to apply for a crisis payment for immediate help)
 [https://www.reesfoundation.org/financial-assistance.html](https://www.reesfoundation.org/financial-assistance.html)
