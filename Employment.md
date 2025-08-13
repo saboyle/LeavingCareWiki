@@ -58,10 +58,7 @@ Employers that provide job and other opportunities specifically for care leavers
 *
 
 
-You will need a typed **CV** telling people about yourself to give to the person at the place you are applying to for a job or to send to the companies you would like to work for. Create and download a cv here [https://careercompanion.cv-creator.com](https://careercompanion.cv-creator.com)
-
-
-*
+You will need a typed **CV** telling people about yourself to give to the person at the place you are applying to for a job or to send to the companies you would like to work for. Create and download a CV here:[https://cvgenius.com/cv-examples/teenager-cv](https://cvgenius.com/cv-examples/teenager-cv)
 
 
 You might have to do an **online test** when you apply for a job so practise doing them here
