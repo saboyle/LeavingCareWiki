@@ -4,6 +4,8 @@
 Up to age 18 the local council is responsible for supporting you and giving you enough money to live so you should contact your **Personal Adviser** in **Children's Services** 
 [https://www.gov.uk/find-local-council](https://www.gov.uk/find-local-council)
 
+If you can't get any help from Children's Services, contact one of the organisations listed under Universal Credit and tell someone that you aren't being supported by the council
+
 *
 
 If you are over 18 and unemployed but looking for a job, you should contact your local **Jobcentre Plus** and request that you are given Class 1 National Insurance contribution credits. This will build up your entitlement to claim benefits at a later date.
