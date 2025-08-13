@@ -9,8 +9,7 @@ If you can't get any help from Children's Services, contact one of the organisat
 *
 
 If you are over 18 and unemployed but looking for a job, you should contact your local **Jobcentre Plus** and request that you are given Class 1 National Insurance contribution credits. This will build up your entitlement to claim benefits at a later date.
-[https://find-your-nearest-jobcentre.dwp.gov.uk/search.php](https://find-your-nearest-jobcentre.dwp.gov.uk/search.php)
-
+[https://www.jobcentreguide.co.uk/jobcentre-plus-offices](https://www.jobcentreguide.co.uk/jobcentre-plus-offices)
 
 You might be told you can apply for **Universal Credit** 
 [https://www.gov.uk/universal-credit/eligibility?step-by-step-nav=7c08bbbf-a1ca-4cf5-850d-d9f2c796c750](https://www.gov.uk/universal-credit/eligibility?step-by-step-nav=7c08bbbf-a1ca-4cf5-850d-d9f2c796c750)
