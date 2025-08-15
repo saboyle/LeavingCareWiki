@@ -89,8 +89,7 @@ Here are the websites for some of the universities offering special support:
 
 
 **University of Wales, Swansea**
-[https://www.uwtsd.ac.uk/care/](https://www.uwtsd.ac.uk/care/)
-
+[https://www.uwtsd.ac.uk/study/fees-and-finance/undergraduate-fees/undergraduate-funding-support/undergraduate-bursaries-2](https://www.uwtsd.ac.uk/study/fees-and-finance/undergraduate-fees/undergraduate-funding-support/undergraduate-bursaries-2)
 
 **University of Edinburgh** 
 [https://www.ed.ac.uk/studying/undergraduate/access-edinburgh/carers-care-experience/care-experienced](https://www.ed.ac.uk/studying/undergraduate/access-edinburgh/carers-care-experience/care-experienced)
