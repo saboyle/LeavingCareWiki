@@ -92,8 +92,7 @@ Here are the websites for some of the universities offering special support:
 [https://www.uwtsd.ac.uk/study/fees-and-finance/undergraduate-fees/undergraduate-funding-support/undergraduate-bursaries-2](https://www.uwtsd.ac.uk/study/fees-and-finance/undergraduate-fees/undergraduate-funding-support/undergraduate-bursaries-2)
 
 **University of Edinburgh** 
-[https://www.ed.ac.uk/studying/undergraduate/access-edinburgh/carers-care-experience/care-experienced](https://www.ed.ac.uk/studying/undergraduate/access-edinburgh/carers-care-experience/care-experienced)
-
+[https://study.ed.ac.uk/undergraduate/access-edinburgh/edinburgh-cares](https://study.ed.ac.uk/undergraduate/access-edinburgh/edinburgh-cares)
 *
 
 If you don’t get into the university you wanted you can apply through what is called ‘**Clearing**’ to see if you can get into a different one  
