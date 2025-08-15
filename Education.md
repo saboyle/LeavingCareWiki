@@ -29,6 +29,10 @@ A Youtube film of care leavers at university
 
 A celebration of the university achievements of care leavers at Cambridge [https://www.homerton.cam.ac.uk/homersphere/news/celebrating-achievements-care-leavers](https://www.homerton.cam.ac.uk/homersphere/news/celebrating-achievements-care-leavers)
 
+Scholarships from The Open University
+[https://mycovenant.org.uk/opportunities/the-open-university-care-experienced-scholarship/](https://mycovenant.org.uk/opportunities/the-open-university-care-experienced-scholarship/)
+
+
 *
 
 All applications to university are made through **UCAS** [https://www.ucas.com](https://www.ucas.com)
