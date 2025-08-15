@@ -17,7 +17,7 @@ Find a traineeship here [https://www.gov.uk/find-traineeship](https://www.gov.uk
 *
 
 
-If you would like help getting the confidence and skills you need to apply for an apprenticeship or a job **The Prince's Trust** offers support and training [https://www.princes-trust.org.uk/help-for-young-people/get-job](https://www.princes-trust.org.uk/help-for-young-people/get-job)
+If you would like help getting the confidence and skills you need to apply for an apprenticeship or a job **The King's Trust** offers support and training [https://www.princes-trust.org.uk/help-for-young-people/get-job](https://www.princes-trust.org.uk/help-for-young-people/get-job)
 
 
 *
@@ -32,7 +32,10 @@ You are entitled to apply at the Jobcentre for work experience in the type of jo
 *
 
 **What is an apprenticeship?**
+
 [https://www.amazingapprenticeships.com/wp-content/uploads/2023/08/Care-Leavers-Guide-to-Apprenticeship_Jan2023-1.pdf](https://www.amazingapprenticeships.com/wp-content/uploads/2023/08/Care-Leavers-Guide-to-Apprenticeship_Jan2023-1.pdf)
+
+
 **Find an apprenticeship**
 [https://www.findapprenticeship.service.gov.uk](https://www.findapprenticeship.service.gov.uk/apprenticeshipsearch?searchMode=Keyword)
 
