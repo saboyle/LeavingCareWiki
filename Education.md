@@ -93,6 +93,8 @@ Here are the websites for some of the universities offering special support:
 
 **University of Edinburgh** 
 [https://study.ed.ac.uk/undergraduate/access-edinburgh/edinburgh-cares](https://study.ed.ac.uk/undergraduate/access-edinburgh/edinburgh-cares)
+
+
 *
 
 If you don’t get into the university you wanted you can apply through what is called ‘**Clearing**’ to see if you can get into a different one  
