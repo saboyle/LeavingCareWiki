@@ -35,7 +35,7 @@ or **Coram Voice**
 
 
 
-### And always remember you are all my heroes!
+### And always remember, you are all my heroes!
 
 
 *
