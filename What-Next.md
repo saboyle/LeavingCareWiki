@@ -8,7 +8,7 @@ You then have to do one of the following until you are 18:
 
 * stay in full time education at school or college
            
-* start an apprenticeship [https://www.gov.uk/become-apprentice](https://www.gov.uk/become-apprentice)
+* start an apprenticeship  [https://www.amazingapprenticeships.com/wp-content/uploads/2023/08/Care-Leavers-Guide-to-Apprenticeship_Jan2023-1.pdf](https://www.amazingapprenticeships.com/wp-content/uploads/2023/08/Care-Leavers-Guide-to-Apprenticeship_Jan2023-1.pdf)
 
 * spend 20 hours or more a week working part-time or volunteering, while in part-time education or training
 
