@@ -33,3 +33,5 @@ You can apply here for a bank account if you're homeless and receiving help from
 
 **Are you sleeping rough?** 
 [https://centrepoint.org.uk/youth-homelessness/get-help-now/i-am-a-young-person/help-when-youre-sleeping-rough/](https://centrepoint.org.uk/youth-homelessness/get-help-now/i-am-a-young-person/help-when-youre-sleeping-rough/)
+
+Homeless charity for LGBTQ+ community [https://www.akt.org.uk/about/](https://www.akt.org.uk/about/)
