@@ -19,7 +19,8 @@ Contact your **Personal Adviser** at **Children's Services** who should treat yo
 
 Find homeless accommodation near you by going to **Google Maps** and typing your town into the search and then 'homeless shelter'. The nearest places are then listed.
 
-Or contact:
+Or contact **Streetlink** [https://thestreetlink.org.uk](https://thestreetlink.org.uk)
+
 
 **Centrepoint** [https://centrepoint.org.uk/youth-homelessness/get-help-now/](https://centrepoint.org.uk/youth-homelessness/get-help-now/)
 
