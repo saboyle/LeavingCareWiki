@@ -56,9 +56,9 @@ If you feel you need help with something that happened to you, maybe you were hu
 
 **LGBTQAI+** support for gender related issues
 [https://www.mind.org.uk/information-support/tips-for-everyday-living/lgbtqiaplus-mental-health/](https://www.mind.org.uk/information-support/tips-for-everyday-living/lgbtqiaplus-mental-health/)
+[https://mindout.org.uk](https://mindout.org.uk)
 
-
-**Helplines** for anyone who has suffered sexual abuse or assault at any time in their life
+**Helplines** for anyone who has suffered sexual abuse or assault' at any time in their life
 [https://www.csacentre.org.uk/find-a-support-service/](https://www.csacentre.org.uk/find-a-support-service/) 
 
 
