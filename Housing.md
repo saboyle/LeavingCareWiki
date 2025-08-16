@@ -21,9 +21,7 @@ Find homeless accommodation near you by going to **Google Maps** and typing your
 
 Or contact **Streetlink** [https://thestreetlink.org.uk](https://thestreetlink.org.uk)
 
-
-**Centrepoint** [https://centrepoint.org.uk/youth-homelessness/get-help-now/](https://centrepoint.org.uk/youth-homelessness/get-help-now/)
-
+**Centrepoint**  [https://centrepoint.org.uk/do-you-need-help/i-need-help-now/im-care-leaver](https://centrepoint.org.uk/do-you-need-help/i-need-help-now/im-care-leaver)
 or
 
 **Shelter**  [https://england.shelter.org.uk/housing_advice/homelessness/temporary_housing_if_youre_homeless/help_if_youre_16_to_25_years_old](https://england.shelter.org.uk/housing_advice/homelessness/temporary_housing_if_youre_homeless/help_if_youre_16_to_25_years_old)
