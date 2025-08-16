@@ -36,7 +36,6 @@ Contact the helpline at **Talk to Frank** [https://www.talktofrank.com/get-help/
  
  
  
- 
 
 ## Feeling bad? (Mental Health)
 If you feel you need help with something that happened to you, maybe you were hurt in some way while you were in care or before, or you feel sad, frightened, angry or just feel bad, these links show phone numbers where people are waiting to help you:
@@ -54,6 +53,9 @@ If you feel you need help with something that happened to you, maybe you were hu
 
 **turn2me** an organisation that can help you sort out your feelings
 [https://turn2me.ie/?gclid=EAIaIQobChMIqN7fwpL61QIVZLftCh3zswLzEAAYASAAEgLg7_D_BwE](https://turn2me.ie/?gclid=EAIaIQobChMIqN7fwpL61QIVZLftCh3zswLzEAAYASAAEgLg7_D_BwE)
+
+**LGBTQAI+** support for gender related issues
+[https://www.mind.org.uk/information-support/tips-for-everyday-living/lgbtqiaplus-mental-health/](https://www.mind.org.uk/information-support/tips-for-everyday-living/lgbtqiaplus-mental-health/)
 
 
 **Helplines** for anyone who has suffered sexual abuse or assault at any time in their life
