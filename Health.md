@@ -49,6 +49,9 @@ If you feel you need help with something that happened to you, maybe you were hu
 [https://www.mind.org.uk/information-support/guides-to-support-and-services/crisis-services/helplines-listening-services/](https://www.mind.org.uk/information-support/guides-to-support-and-services/crisis-services/helplines-listening-services/)
 
 
+**The Mix** information and free telephone or online counselling on any aspect of mental health [https://www.themix.org.uk/explore-our-topics/mental-health/](https://www.themix.org.uk/explore-our-topics/mental-health/)
+
+
 **turn2me** an organisation that can help you sort out your feelings
 [https://turn2me.ie/?gclid=EAIaIQobChMIqN7fwpL61QIVZLftCh3zswLzEAAYASAAEgLg7_D_BwE](https://turn2me.ie/?gclid=EAIaIQobChMIqN7fwpL61QIVZLftCh3zswLzEAAYASAAEgLg7_D_BwE)
 
