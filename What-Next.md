@@ -19,12 +19,20 @@ If you don’t know who is looking after you at the council put your postcode in
 
 This website will tell you what you are entitled to from your local council, including giving you a **Personal Adviser** to help you plan your life after being in care [https://www.gov.uk/leaving-foster-or-local-authority-care](https://www.gov.uk/leaving-foster-or-local-authority-care)
 
+When you meet your Personal Adviser ask them about getting a mobile phone. You will need one to access all the services that are available to help you live an independent life.
+
 If you are having problems getting help from **Children's Services** you
 can contact these organisations:
 
+
 A charity for care leavers called **Become** on **0800 023 2033** [https://www.becomecharity.org.uk/contact](https://www.becomecharity.org.uk/contact)
+
 
 **IMO**, an organisation run with care leavers with a helpline **0800 528 0731**
 [http://imohub.org.uk/about/](http://imohub.org.uk/about/)
 
-**The National Youth Advocacy Service** runs a 'Side By Side'programme to support you as you become independent and help you get what do you need [https://www.nyas.net/get-support/young-people/](https://www.nyas.net/get-support/young-people/)
+
+**The National Youth Advocacy Service** runs a 'Side By Side'programme to support you as you become independent and help you get what you need [https://www.nyas.net/get-support/young-people/](https://www.nyas.net/get-support/young-people/)
+
+
+**Coram Voice**
