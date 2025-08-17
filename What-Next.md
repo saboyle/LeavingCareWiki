@@ -15,11 +15,14 @@ You then have to do one of the following until you are 18:
 
 When you leave care **Children's Services** at your local council must make sure you have a **Personal Adviser** who should help you decide what you want to do next, make sure you've got somewhere to live and enough money until you are 18 then continue to support you until you’re 25
 
+
 If you don’t know who is looking after you at the council put your postcode into this website and get the phone number. When you ring them up ask for **Children's Services** [https://www.gov.uk/find-local-council](https://www.gov.uk/find-local-council)
+
 
 This website will tell you what you are entitled to from your local council, including giving you a **Personal Adviser** to help you plan your life after being in care [https://www.gov.uk/leaving-foster-or-local-authority-care](https://www.gov.uk/leaving-foster-or-local-authority-care)
 
-When you meet your Personal Adviser ask them about getting a mobile phone. You will need one to access all the services that are available to help you live an independent life.
+When you meet your Personal Adviser ask them about getting a **mobile phone**. You will need one to access all the services that are available to help you live an independent life
+
 
 If you are having problems getting help from **Children's Services** you
 can contact these organisations:
@@ -35,4 +38,5 @@ A charity for care leavers called **Become** on **0800 023 2033** [https://www.b
 **The National Youth Advocacy Service** runs a 'Side By Side'programme to support you as you become independent and help you get what you need [https://www.nyas.net/get-support/young-people/](https://www.nyas.net/get-support/young-people/)
 
 
-**Coram Voice**
+**Coram Voice** will support you so you can stand up for your rights and get what you're entitled to 
+[https://coramvoice.org.uk/get-help/](https://coramvoice.org.uk/get-help/)
