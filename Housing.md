@@ -26,6 +26,10 @@ or
 
 **Shelter**  [https://england.shelter.org.uk/housing_advice/homelessness/temporary_housing_if_youre_homeless/help_if_youre_16_to_25_years_old](https://england.shelter.org.uk/housing_advice/homelessness/temporary_housing_if_youre_homeless/help_if_youre_16_to_25_years_old)
 
+
+If you are homeless you can still apply for **Universal Credit**. Tap this link to find out more [https://www.gov.uk/government/publications/universal-credit-and-homeless-people/universal-credit-and-homeless-people-guide-for-supporting-organisations](https://www.gov.uk/government/publications/universal-credit-and-homeless-people/universal-credit-and-homeless-people-guide-for-supporting-organisations)
+
+
 You can apply here for a bank account if you're homeless and receiving help from Shelter [https://www.hsbc.co.uk/help/money-worries/no-fixed-address/](https://www.hsbc.co.uk/help/money-worries/no-fixed-address/)
 
 
