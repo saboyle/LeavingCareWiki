@@ -28,4 +28,4 @@ housing and if you feel something that’s happened to you is unfair or abusive,
 
 ##  Accessing your care records
 
-[https://www.careleavers.com/what-we-do/access-to-records/accessing/](https://www.careleavers.com/what-we-do/access-to-records/accessing/)
+[https://www.careleavers.com/what-we-do/access-to-records/](https://www.careleavers.com/what-we-do/access-to-records/) 
