@@ -47,6 +47,8 @@ If you feel you need help with something that happened to you, maybe you were hu
 **Helplines** including the **Samaritans** and the **young suicide prevention society (PAPYRUS)**
 [https://www.mind.org.uk/information-support/guides-to-support-and-services/crisis-services/helplines-listening-services/](https://www.mind.org.uk/information-support/guides-to-support-and-services/crisis-services/helplines-listening-services/)
 
+If you are having suicidal thoughts and would find it easier to text someone rather than speak to them, text Shout to 85258
+[https://giveusashout.org/get-help/how-shout-works/](https://giveusashout.org/get-help/how-shout-works/)
 
 **The Mix** information and free telephone or online counselling on any aspect of mental health [https://www.themix.org.uk/explore-our-topics/mental-health/](https://www.themix.org.uk/explore-our-topics/mental-health/)
 
