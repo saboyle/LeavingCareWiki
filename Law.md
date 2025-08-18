@@ -10,11 +10,13 @@ If you need help from somewhere else then contact one of these organisations:
 
 * **Citizens Advice** [https://www.citizensadvice.org.uk/about-us/contact-us/contact-us/contact-us/](https://www.citizensadvice.org.uk/about-us/contact-us/contact-us/contact-us/)
 
-* **Just For Kids Law** (provides 24 hour helpline if you have been taken to a police station) [https://www.justforkidslaw.org/contact-us/](https://www.justforkidslaw.org/contact-us/)
+If you have been taken to a police station read your rights here 
+[https://justtherightspace.org/wp-content/uploads/2023/05/rights-police-station-guide-children-young-people.pdf](https://justtherightspace.org/wp-content/uploads/2023/05/rights-police-station-guide-children-young-people.pdf)
+
+* **Just For Kids Law** (provides 24 hour helpline if you have been taken to a police station)/
 
 * **Youth Justice Legal Centre** (provides advice on all legal matters involving young people such as what happens at police interviews)
- [http://www.yjlc.uk/advice-line/advice-children-young-people-and-their-families](http://www.yjlc.uk/advice-line/advice-children-young-people-and-their-families)
-
+ [http://www.yjlc.uk/advice-line/advice-children-young-people-and-their-families](http://www.yjlc.uk/advice-line/advice-children-young-people-and-their-families) 
 
 Legal advisers who can help with your problems with things like 
 housing and if you feel something that’s happened to you is unfair or abusive, including sexual abuse
