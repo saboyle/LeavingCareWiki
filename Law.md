@@ -22,7 +22,7 @@ If you have been taken to a police station read your rights here
 **Just For Kids Law** 24 hour helpline if you have been taken to a police station on 07886 755321
 
   
-  **Youth Justice Legal Centre** (provides advice on all legal matters involving young people such as what happens at police interviews)
+  **Youth Justice Legal Centre** provides advice on all legal matters involving young people such as what happens at police interviews
  [http://www.yjlc.uk/advice-line/advice-children-young-people-and-their-families](http://www.yjlc.uk/advice-line/advice-children-young-people-and-their-families) 
 
 Legal advisers who can help with your problems with things like 
