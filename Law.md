@@ -23,7 +23,7 @@ If you have been taken to a police station read your rights here
 
   
   **Youth Justice Legal Centre** provides advice on all legal matters involving young people such as what happens at police interviews
- [http://www.yjlc.uk/advice-line/advice-children-young-people-and-their-families](http://www.yjlc.uk/advice-line/advice-children-young-people-and-their-families) 
+ [//www.yjlc.uk/advice-line/advice-children-young-people-and-their-families](http://www.yjlc.uk/advice-line/advice-children-young-people-and-their-families) 
 
 Legal advisers who can help with your problems with things like 
 housing and if you feel something that’s happened to you is unfair or abusive
@@ -31,9 +31,7 @@ housing and if you feel something that’s happened to you is unfair or abusive
 **Coram Voice** [https://coramvoice.org.uk](https://coramvoice.org.uk)
 
 **National Youth Advocacy Service**
-[https://youngpeople.nyas.net/index.php/get-in-touch/nyas-helpline](https://youngpeople.nyas.net/index.php/get-in-touch/nyas-helpline)
-
-
+[https://www.nyas.net/get-support/](https://www.nyas.net/get-support/)
 
 ##  Accessing your care records
 
