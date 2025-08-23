@@ -42,7 +42,8 @@ If you have been taken to a police station, read your rights here
 
 
 
-**Need someone to fight for your rights?**
+
+## Need someone to fight for your rights?
 
 Legal advisers who can help with your problems with things like 
 housing and if you feel something that’s happened to you is unfair or abusive
