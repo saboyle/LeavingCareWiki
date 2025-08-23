@@ -46,7 +46,7 @@ When filling in your **UCAS** form tick the ‘Care Leaver’ box and you will g
 
 
 (For information on applying to **Student Finance** to fund your university course go to 
-the **Money** section)
+the **Money** page)
 
 *
 
