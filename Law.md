@@ -11,6 +11,7 @@ Find your local council and ask for **Children's Services**
 
 If you need help from somewhere else then contact one of these organisations:
 
+
 **Become** a charity for care leavers you can talk to about anything –
 Call their advice line on **0800 023 2023** 10am – 5pm Monday to Friday
 [https://becomecharity.org.uk](https://becomecharity.org.uk)
@@ -21,14 +22,18 @@ Call their advice line on **0800 023 2023** 10am – 5pm Monday to Friday
 
 
 
+
 To understand what should happen during a **Stop and Search** by the police, watch this video [https://www.younghackney.org/advice/staying-safe/stop-and-search/](https://www.younghackney.org/advice/staying-safe/stop-and-search/)
+
 
 
 If you have been taken to a police station, read your rights here 
 [https://justtherightspace.org/wp-content/uploads/2023/05/rights-police-station-guide-children-young-people.pdf](https://justtherightspace.org/wp-content/uploads/2023/05/rights-police-station-guide-children-young-people.pdf)
 
 
+
 **Just For Kids Law** 24 hour helpline if you have been taken to a police station **07886 755321**
+
 
 
   
@@ -37,14 +42,18 @@ If you have been taken to a police station, read your rights here
 
 
 
+**Need someone to fight for your rights?**
 
 Legal advisers who can help with your problems with things like 
 housing and if you feel something that’s happened to you is unfair or abusive
 
+
 **Coram Voice** [https://coramvoice.org.uk](https://coramvoice.org.uk)
+
 
 **National Youth Advocacy Service**
 [https://www.nyas.net/get-support/](https://www.nyas.net/get-support/)
+
 
 ##  Accessing your care records
 
