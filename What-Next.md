@@ -8,9 +8,9 @@ You then have to do one of the following until you are 18:
 
 * stay in full time education at school or college
            
-* start an apprenticeship  [https://www.amazingapprenticeships.com/wp-content/uploads/2023/08/Care-Leavers-Guide-to-Apprenticeship_Jan2023-1.pdf](https://www.amazingapprenticeships.com/wp-content/uploads/2023/08/Care-Leavers-Guide-to-Apprenticeship_Jan2023-1.pdf)
-
-* spend 20 hours or more a week working part-time or volunteering, while in part-time education or training
+* start an apprenticeship  [https://www.apprenticeships.gov.uk/apprentices/support-care-experienced-apprentices](https://www.apprenticeships.gov.uk/apprentices/support-care-experienced-apprentices)
+  
+* spend at least 20 hours a week working (or volunteering) while in part-time education or training
 
 
 When you leave care **Children's Services** at your local council must make sure you have a **Personal Adviser** who should help you decide what you want to do next, make sure you've got somewhere to live and enough money until you are 18 then continue to support you until you’re 25
