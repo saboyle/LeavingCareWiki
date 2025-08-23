@@ -14,15 +14,12 @@ You then have to do one of the following until you are 18:
 
 
 
-When you leave care **Children's Services** at your local council must make sure you have a **Personal Adviser** who should help you decide what you want to do next, make sure you've got somewhere to live and enough money until you are 18 then continue to support you until you’re 25
-
+When you leave care **Children's Services** at your local council must make sure you have a **Personal Adviser** who should help you decide what you want to do next, make sure you've got somewhere to live and enough money until you are 18 then continue to support you until you’re 25 
+[https://www.gov.uk/leaving-foster-or-local-authority-care](https://www.gov.uk/leaving-foster-or-local-authority-care)
 
 
 If you don’t know who is looking after you at the council put your postcode into this website and get the phone number. When you ring them up ask for **Children's Services** [https://www.gov.uk/find-local-council](https://www.gov.uk/find-local-council)
 
-
-
-This website will tell you what you are entitled to from your local council, including giving you a **Personal Adviser** to help you plan your life after being in care [https://www.gov.uk/leaving-foster-or-local-authority-care](https://www.gov.uk/leaving-foster-or-local-authority-care)
 
 
 When you meet your Personal Adviser ask them about getting a **mobile phone**. You will need one to access all the services that are available to help you live an independent life
