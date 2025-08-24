@@ -26,7 +26,7 @@ Contact your **Personal Adviser** at **Children's Services** who should treat yo
 
 
 **Centrepoint**  [https://centrepoint.org.uk/do-you-need-help/i-need-help-now/im-care-leaver](https://centrepoint.org.uk/do-you-need-help/i-need-help-now/im-care-leaver)
-or
+
 
 **Shelter**  [https://england.shelter.org.uk/housing_advice/homelessness/temporary_housing_if_youre_homeless/help_if_youre_16_to_25_years_old](https://england.shelter.org.uk/housing_advice/homelessness/temporary_housing_if_youre_homeless/help_if_youre_16_to_25_years_old)
 
@@ -34,11 +34,15 @@ or
 If you are homeless you can still apply for **Universal Credit**. Tap this link to find out more [https://www.gov.uk/government/publications/universal-credit-and-homeless-people/universal-credit-and-homeless-people-guide-for-supporting-organisations](https://www.gov.uk/government/publications/universal-credit-and-homeless-people/universal-credit-and-homeless-people-guide-for-supporting-organisations)
 
 
-You can apply here for a bank account if you're homeless and receiving help from Shelter [https://www.hsbc.co.uk/help/money-worries/no-fixed-address/](https://www.hsbc.co.uk/help/money-worries/no-fixed-address/)
+You can open a **bank account** even if you have no fixed address 
+[https://england.shelter.org.uk/housing_advice/homelessness/how_to_open_a_bank_account](https://england.shelter.org.uk/housing_advice/homelessness/how_to_open_a_bank_account)
 
+
+Housing charity for members of the **LGBTQ+** community [https://www.akt.org.uk/get-immediate-support/](https://www.akt.org.uk/get-immediate-support/)
 
 
 **Are you sleeping rough?** 
 [https://centrepoint.org.uk/youth-homelessness/get-help-now/i-am-a-young-person/help-when-youre-sleeping-rough/](https://centrepoint.org.uk/youth-homelessness/get-help-now/i-am-a-young-person/help-when-youre-sleeping-rough/)
 
-Homeless charity for LGBTQ+ community [https://www.akt.org.uk/about/](https://www.akt.org.uk/about/)
+
+
