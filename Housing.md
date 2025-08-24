@@ -13,13 +13,17 @@ If you are moved to a place where you don’t feel safe for any reason then tell
 
 **National Youth Advocacy Service** [https://www.nyas.net](https://www.nyas.net)
 
+
 ## Are you Homeless?
 
 Contact your **Personal Adviser** at **Children's Services** who should treat you as what they call a ‘child in need’ of emergency accommodation. If you don’t get support from the council these sites can help:
 
-Find homeless accommodation near you by going to **Google Maps** and typing your town into the search and then 'homeless shelter'. The nearest places are then listed.
 
-Or contact **Streetlink** [https://thestreetlink.org.uk](https://thestreetlink.org.uk)
+**Homeless Link** type where you are into the search box and you will see the nearest homeless shelters [https://homeless.org.uk/homeless-england/](https://homeless.org.uk/homeless-england/)
+
+
+**Streetlink** [https://thestreetlink.org.uk](https://thestreetlink.org.uk)
+
 
 **Centrepoint**  [https://centrepoint.org.uk/do-you-need-help/i-need-help-now/im-care-leaver](https://centrepoint.org.uk/do-you-need-help/i-need-help-now/im-care-leaver)
 or
