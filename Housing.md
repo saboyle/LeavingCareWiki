@@ -16,7 +16,12 @@ If you are moved to a place where you don’t feel safe for any reason then tell
 
 ## Are you Homeless?
 
-Contact your **Personal Adviser** at **Children's Services** who should treat you as what they call a ‘child in need’ of emergency accommodation. If you don’t get support from the council these sites can help:
+If you're under 18, contact your **Personal Adviser** at **Children's Services** who should treat you as what they call a ‘child in need’ of emergency accommodation
+[https://www.gov.uk/your-rights-to-housing-if-youre-under-18](https://www.gov.uk/your-rights-to-housing-if-youre-under-18)
+
+
+
+If you don’t get support from the council these sites can help:
 
 
 **Homeless Link** type where you are into the search box and you will see the nearest homeless shelters [https://homeless.org.uk/homeless-england/](https://homeless.org.uk/homeless-england/)
@@ -31,7 +36,7 @@ Contact your **Personal Adviser** at **Children's Services** who should treat yo
 **Shelter**  [https://england.shelter.org.uk/housing_advice/homelessness/temporary_housing_if_youre_homeless/help_if_youre_16_to_25_years_old](https://england.shelter.org.uk/housing_advice/homelessness/temporary_housing_if_youre_homeless/help_if_youre_16_to_25_years_old)
 
 
-If you are homeless you can still apply for **Universal Credit**. Tap this link to find out more [https://www.gov.uk/government/publications/universal-credit-and-homeless-people/universal-credit-and-homeless-people-guide-for-supporting-organisations](https://www.gov.uk/government/publications/universal-credit-and-homeless-people/universal-credit-and-homeless-people-guide-for-supporting-organisations)
+If you are homeless (and over 18) you can still apply for **Universal Credit**. Tap this link to find out more [https://www.gov.uk/government/publications/universal-credit-and-homeless-people/universal-credit-and-homeless-people-guide-for-supporting-organisations](https://www.gov.uk/government/publications/universal-credit-and-homeless-people/universal-credit-and-homeless-people-guide-for-supporting-organisations)
 
 
 You can open a **bank account** even if you have no fixed address 
