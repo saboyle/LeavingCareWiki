@@ -27,13 +27,16 @@ If you don’t get support from the council these sites can help:
 **Homeless Link** type where you are into the search box and you will see the nearest homeless shelters [https://homeless.org.uk/homeless-england/](https://homeless.org.uk/homeless-england/)
 
 
-**Streetlink** [https://thestreetlink.org.uk](https://thestreetlink.org.uk)
 
 
 **Centrepoint**  [https://centrepoint.org.uk/do-you-need-help/i-need-help-now/im-care-leaver](https://centrepoint.org.uk/do-you-need-help/i-need-help-now/im-care-leaver)
 
 
 **Shelter**  [https://england.shelter.org.uk/housing_advice/homelessness/temporary_housing_if_youre_homeless/help_if_youre_16_to_25_years_old](https://england.shelter.org.uk/housing_advice/homelessness/temporary_housing_if_youre_homeless/help_if_youre_16_to_25_years_old)
+
+
+**Homeless Link** type where you are into the search box and you will see the nearest homeless shelters
+
 
 
 If you are homeless (and over 18) you can still apply for **Universal Credit**. Tap this link to find out more [https://www.gov.uk/government/publications/universal-credit-and-homeless-people/universal-credit-and-homeless-people-guide-for-supporting-organisations](https://www.gov.uk/government/publications/universal-credit-and-homeless-people/universal-credit-and-homeless-people-guide-for-supporting-organisations)
@@ -51,3 +54,4 @@ Housing charity for members of the **LGBTQ+** community [https://www.akt.org.uk/
 
 
 
+**Streetlink** [https://thestreetlink.org.uk](https://thestreetlink.org.uk)
