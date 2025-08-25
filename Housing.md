@@ -19,11 +19,11 @@ If you are moved to a place where you don’t feel safe for any reason then tell
 If you're under 18, contact your **Personal Adviser** at **Children's Services** who should treat you as what they call a ‘child in need’ of emergency accommodation
 [https://www.gov.uk/your-rights-to-housing-if-youre-under-18](https://www.gov.uk/your-rights-to-housing-if-youre-under-18)
 
+If you are between 18 and 25 you have the right to be supported by the council so contact your **Personal Adviser**
+
 
 
 If you don’t get support from the council these sites can help:
-
-
 
 
 **Centrepoint**  [https://centrepoint.org.uk/do-you-need-help/i-need-help-now/im-care-leaver](https://centrepoint.org.uk/do-you-need-help/i-need-help-now/im-care-leaver)
@@ -46,7 +46,7 @@ You can open a **bank account** even if you have no fixed address
 Housing charity for members of the **LGBTQ+** community [https://www.akt.org.uk/get-immediate-support/](https://www.akt.org.uk/get-immediate-support/)
 
 
-**Are you sleeping rough?** 
+# Are you sleeping rough?
 [https://centrepoint.org.uk/youth-homelessness/get-help-now/i-am-a-young-person/help-when-youre-sleeping-rough/](https://centrepoint.org.uk/youth-homelessness/get-help-now/i-am-a-young-person/help-when-youre-sleeping-rough/)
 
 
