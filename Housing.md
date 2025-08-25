@@ -46,7 +46,7 @@ You can open a **bank account** even if you have no fixed address
 Housing charity for members of the **LGBTQ+** community [https://www.akt.org.uk/get-immediate-support/](https://www.akt.org.uk/get-immediate-support/)
 
 
-# Are you sleeping rough?
+## Are you sleeping rough (on the streets)?
 [https://centrepoint.org.uk/youth-homelessness/get-help-now/i-am-a-young-person/help-when-youre-sleeping-rough/](https://centrepoint.org.uk/youth-homelessness/get-help-now/i-am-a-young-person/help-when-youre-sleeping-rough/)
 
 
