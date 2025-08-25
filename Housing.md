@@ -24,9 +24,6 @@ If you're under 18, contact your **Personal Adviser** at **Children's Services**
 If you don’t get support from the council these sites can help:
 
 
-**Homeless Link** type where you are into the search box and you will see the nearest homeless shelters [https://homeless.org.uk/homeless-england/](https://homeless.org.uk/homeless-england/)
-
-
 
 
 **Centrepoint**  [https://centrepoint.org.uk/do-you-need-help/i-need-help-now/im-care-leaver](https://centrepoint.org.uk/do-you-need-help/i-need-help-now/im-care-leaver)
@@ -36,7 +33,7 @@ If you don’t get support from the council these sites can help:
 
 
 **Homeless Link** type where you are into the search box and you will see the nearest homeless shelters
-
+[https://homeless.org.uk/homeless-england/](https://homeless.org.uk/homeless-england/)
 
 
 If you are homeless (and over 18) you can still apply for **Universal Credit**. Tap this link to find out more [https://www.gov.uk/government/publications/universal-credit-and-homeless-people/universal-credit-and-homeless-people-guide-for-supporting-organisations](https://www.gov.uk/government/publications/universal-credit-and-homeless-people/universal-credit-and-homeless-people-guide-for-supporting-organisations)
