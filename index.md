@@ -10,7 +10,7 @@ I have included topics like money, homelessness and mental health so you can fin
 Tap the links below to get started
 
 
-*EMILY FOSTER**
+
 
 
 
@@ -25,3 +25,7 @@ Tap the links below to get started
 * [Health](Health.md)
 * [Law / Police](Law.md)
 * [Continuing Support](ContinuuingSupport.md)
+
+
+
+  *Emily Foster  2020 - 2025*
