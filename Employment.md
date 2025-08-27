@@ -2,7 +2,7 @@
 ## Jobs /  Apprenticeships
 
 
-If you are 16 or 17 and not in full-time education then you will have to do a job with training or get an apprenticeship 
+If you are 16 or 17 and not in full-time education then you will have to do a job with training or start an apprenticeship 
 
 Your **Personal Adviser** should help you decide what you would like to do
 
