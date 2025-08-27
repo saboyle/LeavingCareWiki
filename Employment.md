@@ -1,18 +1,12 @@
 
-## Employment
+## Jobs /  Apprenticeships
 
-If you are 16 or 17 and not in education then you will have to do a **traineeship, an apprenticeship or get a job** 
+
+If you are 16 or 17 and not in full-time education then you will have to do a job with training or get an apprenticeship 
 
 Your **Personal Adviser** should help you decide what you would like to do
 
 Find out what type of work you would be good at here [https://nationalcareers.service.gov.uk/skills-assessment](https://nationalcareers.service.gov.uk/skills-assessment)
-
-*
-
-A **traineeship** is work preparation training to give 16 to 24 year olds the skills that might be needed to apply for apprenticeships and jobs
-
-Find a traineeship here [https://www.gov.uk/find-traineeship](https://www.gov.uk/find-traineeship)
-
 
 *
 
@@ -23,10 +17,9 @@ If you would like help getting the confidence and skills you need to apply for a
 *
 
 
-Whatever age you are you can contact your local **Jobcentre Plus** for help. Just click on the magnifying glass and type in the town or postcode where you are to find the nearest one
+Whatever age you are you can contact your local **Jobcentre Plus** for help. Just click on the magnifying glass and type in a local postcode. If you haven't got a permanent address, check the address of a local shop so you can use their postcode which will enable you to find the nearest one
 [https://www.totaljobs.com/careers-advice/job-centres/job-centres](https://www.totaljobs.com/careers-advice/job-centres/job-centres)
 
-You are entitled to apply at the Jobcentre for work experience in the type of job you're interested in.
 
 
 *
