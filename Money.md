@@ -87,7 +87,7 @@ If you think you're not being paid properly or you're having money problems with
 
 If you are on a low wage and you are over 18 you can apply for **Universal Credit** see above
 
-For anyone under 18 contact your Personal Adviser or one of the organisations shown above
+For anyone under 18 having problems, contact your Personal Adviser or one of the organisations shown above
 
 
 *
