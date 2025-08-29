@@ -79,6 +79,9 @@ If you would prefer to start work rather than stay in education, starting an app
 You should also be paid the minimum rate that applies to your age, so check here
 [https://www.gov.uk/become-apprentice/pay-and-conditions](https://www.gov.uk/become-apprentice/pay-and-conditions)
 
+If you think you're not being paid properly or you're having money problems with your employer, contact Citizens Advice [https://www.citizensadvice.org.uk/work/pay/getting-paid-less-than-minimum-wage-or-living-wage/](https://www.citizensadvice.org.uk/work/pay/getting-paid-less-than-minimum-wage-or-living-wage/)
+
+
 *
 
 
