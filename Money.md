@@ -69,11 +69,15 @@ Additional money you may be entitled to if you are going to go to university
 
 *
 
+**Getting a job as an apprentice**
+
 
 **Apprenticeship Bursaries**
-If you would prefer to start work rather than stay in education, starting an apprenticeship will make you eligible for up to £3000
+If you would prefer to start work rather than stay in education, starting an apprenticeship will make you eligible for up to £3,000
 [https://www.apprenticeships.gov.uk/apprentices/support-care-experienced-apprentices](https://www.apprenticeships.gov.uk/apprentices/support-care-experienced-apprentices)
 
+You should also be paid the minimum rate that applies to your age, so check here
+[https://www.gov.uk/become-apprentice/pay-and-conditions](https://www.gov.uk/become-apprentice/pay-and-conditions)
 
 *
 
