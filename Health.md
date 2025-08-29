@@ -65,7 +65,10 @@ If you feel you want to hurt yourself there is an online forum where you can get
 
 **LGBTQAI+** support for gender related issues
 [https://www.mind.org.uk/information-support/tips-for-everyday-living/lgbtqiaplus-mental-health/](https://www.mind.org.uk/information-support/tips-for-everyday-living/lgbtqiaplus-mental-health/)
+
+**Mindout** services for LGBTQ+ community 
 [https://mindout.org.uk](https://mindout.org.uk)
+
 
 **Helplines** for anyone who has suffered sexual abuse or assault' at any time in their life
 [https://www.csacentre.org.uk/find-a-support-service/](https://www.csacentre.org.uk/find-a-support-service/) 
