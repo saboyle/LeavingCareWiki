@@ -69,7 +69,7 @@ Additional money you may be entitled to if you are going to go to university
 
 *
 
-**Getting a job as an apprentice**
+**Getting a job**
 
 
 **Apprenticeship Bursaries**
@@ -81,7 +81,11 @@ You should also be paid the minimum rate that applies to your age, so check here
 
 If you think you're not being paid properly or you're having money problems with your employer, contact Citizens Advice [https://www.citizensadvice.org.uk/work/pay/getting-paid-less-than-minimum-wage-or-living-wage/](https://www.citizensadvice.org.uk/work/pay/getting-paid-less-than-minimum-wage-or-living-wage/)
 
+If you are on a low wage and you are over 18 you can apply for **Universal Credit** see above
 
+For everyone under 18 you should contact your personal advisor at the council
+
+p
 *
 
 
