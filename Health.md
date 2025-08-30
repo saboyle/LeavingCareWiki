@@ -47,7 +47,7 @@ If you feel you need help with something that happened to you, maybe you were hu
 **Helplines** including the **Samaritans** and the **young suicide prevention society (PAPYRUS)**
 [https://www.mind.org.uk/information-support/guides-to-support-and-services/crisis-services/helplines-listening-services/](https://www.mind.org.uk/information-support/guides-to-support-and-services/crisis-services/helplines-listening-services/)
 
-**If you need immediate help to deal with your feelings, call for an ambulance on 999** 
+**If you need immediate help please call for an ambulance on 999** 
 
 If you are having suicidal thoughts and would find it easier to text someone rather than speak to them, text Shout to 85258
 [https://giveusashout.org/get-help/how-shout-works/](https://giveusashout.org/get-help/how-shout-works/)
@@ -65,14 +65,15 @@ If you feel you have to hurt yourself to deal with your feelings, there is an on
 
 
 **LGBTQAI+** support for gender related issues contact
-*Switchboard*
-[https://switchboard.lgbt](https://switchboard.lgbt)
+**Switchboard**
+[https://switchboard.lgbt](https://switchboard.lgbt) 
 *or read the information here* 
-
 [https://www.mind.org.uk/information-support/tips-for-everyday-living/lgbtqiaplus-mental-health/](https://www.mind.org.uk/information-support/tips-for-everyday-living/lgbtqiaplus-mental-health/)
 
 **Mindout** services run by and for the LGBTQ+ community
 [//mindout.org.uk](https://mindout.org.uk) 
+
+
 
 
 **Helplines** for anyone who has suffered sexual abuse or assault' at any time in their life
