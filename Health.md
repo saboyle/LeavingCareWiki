@@ -64,11 +64,15 @@ If you feel you have to hurt yourself to deal with your feelings, there is an on
 [https://turn2me.ie/?gclid=EAIaIQobChMIqN7fwpL61QIVZLftCh3zswLzEAAYASAAEgLg7_D_BwE](https://turn2me.ie/?gclid=EAIaIQobChMIqN7fwpL61QIVZLftCh3zswLzEAAYASAAEgLg7_D_BwE)
 
 
-**LGBTQAI+** support for gender related issues
+**LGBTQAI+** support for gender related issues contact
+*Switchboard*
+[https://switchboard.lgbt](https://switchboard.lgbt)
+*or read the information here* 
+
 [https://www.mind.org.uk/information-support/tips-for-everyday-living/lgbtqiaplus-mental-health/](https://www.mind.org.uk/information-support/tips-for-everyday-living/lgbtqiaplus-mental-health/)
 
 **Mindout** services run by and for the LGBTQ+ community
-[//mindout.org.uk](https://mindout.org.uk)
+[//mindout.org.uk](https://mindout.org.uk) 
 
 
 **Helplines** for anyone who has suffered sexual abuse or assault' at any time in their life
