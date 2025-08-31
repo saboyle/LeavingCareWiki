@@ -8,7 +8,7 @@ Need an **ambulance?  Dial 999**
 Need to find your nearest **Urgent Care Centre** (if you're hurt but can get to a clinic by yourself)
 [https://www.nhs.uk/nhs-services/urgent-and-emergency-care-services/find-urgent-and-emergency-care-services/](https://www.nhs.uk/nhs-services/urgent-and-emergency-care-services/find-urgent-and-emergency-care-services/)
 
-Need to find a **GP (doctor) or an NHS dentist?** [https://www.nhs.uk/service-search/](https://www.nhs.uk/service-search/)
+Need to find a local **GP (doctor)** or a **dentist?** [https://www.nhs.uk/service-search/](https://www.nhs.uk/service-search/)
 
 
 
@@ -72,8 +72,7 @@ If you feel you have to hurt yourself to deal with your feelings, there is an on
 
 **LGBTQAI+** support for gender related issues contact
 **Switchboard**
-[https://switchboard.lgbt](https://switchboard.lgbt) 
-*or read the information here* 
+[https://switchboard.lgbt](https://switchboard.lgbt) or read the information here  
 [https://www.mind.org.uk/information-support/tips-for-everyday-living/lgbtqiaplus-mental-health/](https://www.mind.org.uk/information-support/tips-for-everyday-living/lgbtqiaplus-mental-health/)
 
 **Mindout** services run by and for the LGBTQ+ community
