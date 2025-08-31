@@ -49,7 +49,7 @@ If you feel you need help with something that happened to you, maybe you were hu
 
 **If you need immediate help please call for an ambulance on 999** 
 
-If you are having suicidal thoughts and would find it easier to text someone rather than speak to them, text **Shout** lto **85258**
+If you are having suicidal thoughts and would find it easier to text someone rather than speak to them, text **Shout** to **85258**
 [https://giveusashout.org/get-help/how-shout-works/](https://giveusashout.org/get-help/how-shout-works/)
 
 
