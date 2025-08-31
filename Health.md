@@ -59,10 +59,13 @@ If you feel you have to hurt yourself to deal with your feelings, there is an on
 **The Mix** information and free telephone or online counselling on any aspect of mental health [https://www.themix.org.uk/explore-our-topics/mental-health/](https://www.themix.org.uk/explore-our-topics/mental-health/)
 
 
+**Side By Side** online community where you can share your mental health problems with others going through the same things [https://www.mind.org.uk/information-support/side-by-side-our-online-community/](https://www.mind.org.uk/information-support/side-by-side-our-online-community/)
+
 
 **turn2me** an organisation that can help you sort out your feelings
 [https://turn2me.ie/?gclid=EAIaIQobChMIqN7fwpL61QIVZLftCh3zswLzEAAYASAAEgLg7_D_BwE](https://turn2me.ie/?gclid=EAIaIQobChMIqN7fwpL61QIVZLftCh3zswLzEAAYASAAEgLg7_D_BwE)
 
+*
 
 **LGBTQAI+** support for gender related issues contact
 **Switchboard**
@@ -73,7 +76,7 @@ If you feel you have to hurt yourself to deal with your feelings, there is an on
 **Mindout** services run by and for the LGBTQ+ community
 [//mindout.org.uk](https://mindout.org.uk) 
 
-
+*
 
 
 **Helplines** for anyone who has suffered sexual abuse or assault' at any time in their life
@@ -83,5 +86,5 @@ If you feel you have to hurt yourself to deal with your feelings, there is an on
 *
 
 
- YouTube film by a man who was brought up in care (**and thinks all children and young people in care are STARS!)**
+ YouTube film by a man who was brought up in care **and thinks all children and young people in care are STARS!**
 [https://m.youtube.com/watch?v=Uwj5XKzOadM&t=22s](https://m.youtube.com/watch?v=Uwj5XKzOadM&t=22s)
