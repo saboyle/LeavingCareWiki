@@ -19,6 +19,7 @@ Call their advice line on **0800 023 2023** 10am – 5pm Monday to Friday
 
 ## You've been questioned or detained by the police
 
+This website provides information on everything you need to know [https://lawstuff.org.uk/police-and-law/](https://lawstuff.org.uk/police-and-law/)
 
 To understand what should happen during a **Stop and Search** by the police, watch this video [https://www.younghackney.org/advice/staying-safe/stop-and-search/](https://www.younghackney.org/advice/staying-safe/stop-and-search/)
 
