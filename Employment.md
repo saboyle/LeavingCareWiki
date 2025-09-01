@@ -48,12 +48,6 @@ Employers that provide job and other opportunities specifically for care leavers
 
 
 
-**Find a Job** a website provided by the Government [https://www.gov.uk/find-a-job](https://www.gov.uk/find-a-job)
-
-
-**Indeed** Type the word ‘trainee’ or other job title into the ‘What’ box of this job search site
-[https://www.indeed.co.uk/m/#](https://www.indeed.co.uk/m/#)
-
 
 *
 
