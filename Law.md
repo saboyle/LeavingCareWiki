@@ -17,9 +17,6 @@ Call their advice line on **0800 023 2023** 10am – 5pm Monday to Friday
 [https://becomecharity.org.uk](https://becomecharity.org.uk)
 
 
-**Citizens Advice** [https://www.citizensadvice.org.uk/law-and-courts/](https://www.citizensadvice.org.uk/law-and-courts/)
-
-
 ## You've been questioned or detained by the police
 
 
