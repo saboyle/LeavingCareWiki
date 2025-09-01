@@ -24,8 +24,6 @@ Whatever age you are you can contact your local **Jobcentre Plus** for help. Jus
 [https://www.totaljobs.com/careers-advice/job-centres/job-centres](https://www.totaljobs.com/careers-advice/job-centres/job-centres)
 
 
-Find a job
-
 **Total Jobs** [https://www.totaljobs.com/?cid=SEA_GO_UK-TJ-BRAND---E%7C%5BA%5D_c_total%20jobs--%7CBRAND001--_totaljobs_FP_RSA1&adjust_t=1qv41avw_1qxxj48s&adjust_campaign=SEA_GO_UK-TJ-BRAND---E%7C%5BA%5D_c_total%20jobs--%7CBRAND001--_totaljobs_FP_RSA1&gad_source=1&gad_campaignid=19773818868&gbraid=0AAAAAD3JKXNOo93I21AZDh4_tjzbgEv_T&gclid=CjwKCAjwiNXFBhBKEiwAPSaPCUnfrmVhLfpPbAcFhpUK03q1eN4fpoMunWJeNcw2p1uSLTGolj-hARoCkbgQAvD_BwE](https://www.totaljobs.com/?cid=SEA_GO_UK-TJ-BRAND---E%7C%5BA%5D_c_total%20jobs--%7CBRAND001--_totaljobs_FP_RSA1&adjust_t=1qv41avw_1qxxj48s&adjust_campaign=SEA_GO_UK-TJ-BRAND---E%7C%5BA%5D_c_total%20jobs--%7CBRAND001--_totaljobs_FP_RSA1&gad_source=1&gad_campaignid=19773818868&gbraid=0AAAAAD3JKXNOo93I21AZDh4_tjzbgEv_T&gclid=CjwKCAjwiNXFBhBKEiwAPSaPCUnfrmVhLfpPbAcFhpUK03q1eN4fpoMunWJeNcw2p1uSLTGolj-hARoCkbgQAvD_BwE)
 
 
