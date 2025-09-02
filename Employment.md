@@ -54,6 +54,8 @@ Employers that provide jobs, apprenticeships and other opportunities specificall
 
 You will need a typed **CV** telling people about yourself to give to the person at the place you are applying to for a job or to send to the companies you would like to work for
 
+Watch this video to find out what you need to put in your CV [https://youtu.be/0d37P-neOiY](https://youtu.be/0d37P-neOiY)
+
 Tap here to learn about how to write your first CV [https://www.prospects.ac.uk/careers-advice/cvs-and-cover-letters/example-cvs/school-leaver-cv-example](https://www.prospects.ac.uk/careers-advice/cvs-and-cover-letters/example-cvs/school-leaver-cv-example)
 
 To produce a typed CV you will need to use a PC, phone or tablet. You will also need an **email account** if you're going to be applying for jobs online and a very common way of doing this is to use Google
