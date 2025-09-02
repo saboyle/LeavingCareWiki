@@ -52,7 +52,6 @@ Employers that provide job and other opportunities specifically for care leavers
 *
 
 
-You will need a typed **CV** telling people about yourself to give to the person at the place you are applying to for a job or to send to the companies you would like to work for. Tap here to learn about how to write your first CV [https://uk.indeed.com/career-advice/cvs-cover-letters/writing-a-cv-with-no-experience](https://uk.indeed.com/career-advice/cvs-cover-letters/writing-a-cv-with-no-experience)
-
+You will need a typed **CV** telling people about yourself to give to the person at the place you are applying to for a job or to send to the companies you would like to work for. Tap here to learn about how to write your first CV [https://www.prospects.ac.uk/careers-advice/cvs-and-cover-letters/example-cvs/school-leaver-cv-example](https://www.prospects.ac.uk/careers-advice/cvs-and-cover-letters/example-cvs/school-leaver-cv-example)
 
 Create and download a CV here  [https://www.reed.co.uk/career-advice/school-leaver-cv-template/](https://www.reed.co.uk/career-advice/school-leaver-cv-template/)
