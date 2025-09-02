@@ -55,4 +55,5 @@ Employers that provide job and other opportunities specifically for care leavers
 
 You will need a typed **CV** telling people about yourself to give to the person at the place you are applying to for a job or to send to the companies you would like to work for. Tap here to learn about how to write your first CV [https://www.prospects.ac.uk/careers-advice/cvs-and-cover-letters/example-cvs/school-leaver-cv-example](https://www.prospects.ac.uk/careers-advice/cvs-and-cover-letters/example-cvs/school-leaver-cv-example)
 
-Create and download a CV here  [https://www.reed.co.uk/career-advice/school-leaver-cv-template/](https://www.reed.co.uk/career-advice/school-leaver-cv-template/)
+To produce a typed CV you will need to use a PC, phone or tablet. You will also need an email account if you're going to be applying for jobs online and a very common way of doing this is to use Google. Once you have a Google account [https://support.google.com/mail/answer/56256?hl=en]
+(https://support.google.com/mail/answer/56256?hl=en) you can use Google Drive to create your CV and either print it or save it either as a Word document or a PDF
