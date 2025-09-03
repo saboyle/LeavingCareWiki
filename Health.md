@@ -19,7 +19,7 @@ Need to find a local **GP (doctor)** or a **dentist?** [https://www.nhs.uk/servi
 Contact the helpline at **Talk to Frank** [https://www.talktofrank.com/get-help/find-support-near-you](https://www.talktofrank.com/get-help/find-support-near-you)
    
 
-**NHS Addiction Services** 
+**NHS Addiction Services** get help with addictions like drinking or gambling
 [https://www.nhs.uk/live-well/healthy-body/addiction-what-is-it/](https://www.nhs.uk/live-well/healthy-body/addiction-what-is-it/)
 
 
