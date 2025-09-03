@@ -21,13 +21,22 @@ If you would like help getting the confidence and skills you need to apply for a
 ## Find a Job
 
 
-Whatever age you are you can contact your local **Jobcentre Plus** for help. Just click on the magnifying glass and type in a local postcode. If you haven't got a permanent address, check the address of a local shop so you can use their postcode which will enable you to find the nearest one
+Have a look at the current job vacancies here  [https://www.gov.uk/find-a-job](https://www.gov.uk/find-a-job)
+
+Alternatively, contact your local **Jobcentre Plus** for help. Just click on the magnifying glass and type in a local postcode. If you haven't got a permanent address, check the address of a local shop so you can use their postcode which will enable you to find the nearest one
 [https://find-your-nearest-jobcentre.dwp.gov.uk/search.php](https://find-your-nearest-jobcentre.dwp.gov.uk/search.php) or you can search for your nearest town in this list of job centres
 [https://www.totaljobs.com/careers-advice/job-centres/job-centres](https://www.totaljobs.com/careers-advice/job-centres/job-centres)
 
 
-**Total Jobs** look for jobs here  
+or use **Total Jobs** to see the current job vacancies 
  [//www.totaljobs.com/?cid=SEA_GO_UK-TJ-BRAND---E%7C%5BA%5D_c_total%20jobs--%7CBRAND001--_totaljobs_FP_RSA1&adjust_t=1qv41avw_1qxxj48s&adjust_campaign=SEA_GO_UK-TJ-BRAND---E%7C%5BA%5D_c_total%20jobs--%7CBRAND001--_totaljobs_FP_RSA1&gad_source=1&gad_campaignid=19773818868&gbraid=0AAAAAD3JKXNOo93I21AZDh4_tjzbgEv_T&gclid=CjwKCAjwiNXFBhBKEiwAPSaPCUnfrmVhLfpPbAcFhpUK03q1eN4fpoMunWJeNcw2p1uSLTGolj-hARoCkbgQAvD_BwE](https://www.totaljobs.com/?cid=SEA_GO_UK-TJ-BRAND---E%7C%5BA%5D_c_total%20jobs--%7CBRAND001--_totaljobs_FP_RSA1&adjust_t=1qv41avw_1qxxj48s&adjust_campaign=SEA_GO_UK-TJ-BRAND---E%7C%5BA%5D_c_total%20jobs--%7CBRAND001--_totaljobs_FP_RSA1&gad_source=1&gad_campaignid=19773818868&gbraid=0AAAAAD3JKXNOo93I21AZDh4_tjzbgEv_T&gclid=CjwKCAjwiNXFBhBKEiwAPSaPCUnfrmVhLfpPbAcFhpUK03q1eN4fpoMunWJeNcw2p1uSLTGolj-hARoCkbgQAvD_BwE)
+
+
+Other job agencies you might like to try:
+
+**Reed**  [https://www.reed.co.uk](https://www.reed.co.uk) 
+
+**Indeed**  [https://uk.indeed.com/?from=mobRdr&utm_source=%2Fm%2F&utm_medium=redir&utm_campaign=dt#](https://uk.indeed.com/?from=mobRdr&utm_source=%2Fm%2F&utm_medium=redir&utm_campaign=dt#)
 
 
 *
