@@ -4,7 +4,9 @@
 
 If you are 16 or 17 and not in full-time education then you will have to do a job with training or start an apprenticeship 
 
-Your **Personal Adviser** should help you decide what you would like to do
+
+Your **Personal Adviser** should help you decide what you would like to do as a career. If you would like more help contact **Become** [https://becomecharity.org.uk/get-support/care-advice-service/](https://becomecharity.org.uk/get-support/care-advice-service/)
+
 
 Find out what type of work you would be good at here [https://nationalcareers.service.gov.uk/skills-assessment](https://nationalcareers.service.gov.uk/skills-assessment)
 
@@ -38,13 +40,12 @@ Whatever age you are you can contact your local **Jobcentre Plus** for help. Jus
 **Find an apprenticeship**
 [https://www.findapprenticeship.service.gov.uk](https://www.findapprenticeship.service.gov.uk/apprenticeshipsearch?searchMode=Keyword)
 
-**Careermap** for apprenticeships and jobs [https://careermap.co.uk](https://careermap.co.uk)
-
+**Careermap** for apprenticeships and jobs [https://careermap.co.uk/jobs?jr=49e0afdc-7456-11f0-893f-0686a47ba19d](https://careermap.co.uk/jobs?jr=49e0afdc-7456-11f0-893f-0686a47ba19d)
 
 
 # The Care Leaver Covenant  
 
-Employers that provide jobs, apprenticeships and other opportunities specifically for care leavers
+Jobs, apprenticeships and other opportunities specifically for care leavers 97
 [https://mycovenant.org.uk/for-care-leavers/connects/](https://mycovenant.org.uk/for-care-leavers/connects/)
 
 
