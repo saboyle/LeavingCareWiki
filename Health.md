@@ -53,9 +53,7 @@ If you are having suicidal thoughts and would find it easier to text someone rat
 [https://giveusashout.org/get-help/how-shout-works/](https://giveusashout.org/get-help/how-shout-works/)
 
 
-If you feel you have to hurt yourself to deal with your feelings, there is an online forum where you can get support from people who understand  [https://www.nshn.co.uk](https://www.nshn.co.uk)
-
-
+If you feel you have to hurt yourself to deal with your feelings, tap here [https://rightlinesuk.org](https://rightlinesuk.org)
 *
 
 
