@@ -41,16 +41,20 @@ Other job agencies you might like to try:
 
 *
 
+## Apprenticeships
 
-**What is an apprenticeship?**
+If you do an apprenticeship you can earn a bonus of up to £3,000 
 
 [https://www.amazingapprenticeships.com/wp-content/uploads/2023/08/Care-Leavers-Guide-to-Apprenticeship_Jan2023-1.pdf](https://www.amazingapprenticeships.com/wp-content/uploads/2023/08/Care-Leavers-Guide-to-Apprenticeship_Jan2023-1.pdf)
 
 
 **Find an apprenticeship**
+
 [https://www.findapprenticeship.service.gov.uk](https://www.findapprenticeship.service.gov.uk/apprenticeshipsearch?searchMode=Keyword)
 
 **Careermap** for apprenticeships and jobs [https://careermap.co.uk/jobs?jr=49e0afdc-7456-11f0-893f-0686a47ba19d](https://careermap.co.uk/jobs?jr=49e0afdc-7456-11f0-893f-0686a47ba19d)
+
+
 
 
 # The Care Leaver Covenant  
