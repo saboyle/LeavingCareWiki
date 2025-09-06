@@ -45,10 +45,21 @@ Other job agencies you might like to try:
 
 **What is an apprenticeship?**
 
+Watch this film
+
+[https://www.amazingapprenticeships.com/resources/the-apprenticeship-assembly-film/](https://www.amazingapprenticeships.com/resources/the-apprenticeship-assembly-film/)
+
+Or read this
+
 [https://www.gov.uk/become-apprentice](https://www.gov.uk/become-apprentice)
 
 
 If you do an apprenticeship you can earn a bonus of up to **£3,000**
+
+[https://www.apprenticeships.gov.uk/apprentices/support-care-experienced-apprentices](https://www.apprenticeships.gov.uk/apprentices/support-care-experienced-apprentices)
+
+
+Further details of the care leavers apprenticeship bursary (bonus)
 
 [https://www.amazingapprenticeships.com/wp-content/uploads/2023/08/Care-Leavers-Guide-to-Apprenticeship_Jan2023-1.pdf](https://www.amazingapprenticeships.com/wp-content/uploads/2023/08/Care-Leavers-Guide-to-Apprenticeship_Jan2023-1.pdf)
 
