@@ -43,7 +43,12 @@ Other job agencies you might like to try:
 
 ## Apprenticeships
 
-If you do an apprenticeship you can earn a bonus of up to £3,000 
+**What is an apprenticeship?**
+
+[https://www.gov.uk/become-apprentice](https://www.gov.uk/become-apprentice)
+
+
+If you do an apprenticeship you can earn a bonus of up to **£3,000**
 
 [https://www.amazingapprenticeships.com/wp-content/uploads/2023/08/Care-Leavers-Guide-to-Apprenticeship_Jan2023-1.pdf](https://www.amazingapprenticeships.com/wp-content/uploads/2023/08/Care-Leavers-Guide-to-Apprenticeship_Jan2023-1.pdf)
 
