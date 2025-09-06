@@ -65,8 +65,8 @@ If you do an apprenticeship you can earn a bonus of up to **£3,000**
 # The Care Leaver Covenant  
 
 Jobs, apprenticeships and other opportunities specifically for care leavers 
-[https://mycovenant.org.uk/for-care-leavers/connects/](https://mycovenant.org.uk/for-care-leavers/connects/)
 
+[https://mycovenant.org.uk/for-care-leavers/care-leaver-opportunities/](https://mycovenant.org.uk/for-care-leavers/care-leaver-opportunities/)
 
 
 *
