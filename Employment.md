@@ -63,10 +63,16 @@ Further details of the **Care Leavers' Apprenticeship Bursary** (bonus)
 
 [https://www.findapprenticeship.service.gov.uk](https://www.findapprenticeship.service.gov.uk/apprenticeshipsearch?searchMode=Keyword)
 
+
 **Careermap** for apprenticeships and jobs [https://careermap.co.uk/jobs?jr=49e0afdc-7456-11f0-893f-0686a47ba19d](https://careermap.co.uk/jobs?jr=49e0afdc-7456-11f0-893f-0686a47ba19d)
 
-*
 
+**Not Going To Uni**  [https://notgoingtouni.co.uk/opportunities#](https://notgoingtouni.co.uk/opportunities#)
+
+
+Don't Forget – look up the website for the company you're interested in working for and check under careers
+
+*
 
 # The Care Leaver Covenant  
 
