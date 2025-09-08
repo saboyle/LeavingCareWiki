@@ -21,7 +21,7 @@ If you would like help getting the confidence and skills you need to apply for a
 ## Find a Job
 
 
-Have a look at the current job vacancies here  [https://www.gov.uk/find-a-job](https://www.gov.uk/find-a-job)
+Have a look at some current job vacancies here  [https://www.gov.uk/find-a-job](https://www.gov.uk/find-a-job)
 
 Alternatively, contact your local **Jobcentre Plus** for help. Just click on the magnifying glass and type in a local postcode. If you haven't got a permanent address, check the address of a local shop so you can use their postcode which will enable you to find the nearest one
 [https://find-your-nearest-jobcentre.dwp.gov.uk/search.php](https://find-your-nearest-jobcentre.dwp.gov.uk/search.php) or you can search for your nearest town in this list of job centres
@@ -44,22 +44,18 @@ Other job agencies you might like to try:
 
 **What is an apprenticeship?**
 
-Watch this film
-
+Watch this film to find out:
 [https://www.amazingapprenticeships.com/resources/the-apprenticeship-assembly-film/](https://www.amazingapprenticeships.com/resources/the-apprenticeship-assembly-film/)
 
-Or read this
-
+Or read this:
 [https://www.gov.uk/become-apprentice](https://www.gov.uk/become-apprentice)
 
 
-If you do an apprenticeship you can earn a bonus of up to **£3,000**
-
+If you complete an apprenticeship you will be entitled to a bonus of up to **£3,000**
 [https://www.apprenticeships.gov.uk/apprentices/support-care-experienced-apprentices](https://www.apprenticeships.gov.uk/apprentices/support-care-experienced-apprentices)
 
 
-Further details of the care leavers apprenticeship bursary (bonus)
-
+Further details of the **Care Leavers' Apprenticeship Bursary** (bonus)
 [https://www.amazingapprenticeships.com/wp-content/uploads/2023/08/Care-Leavers-Guide-to-Apprenticeship_Jan2023-1.pdf](https://www.amazingapprenticeships.com/wp-content/uploads/2023/08/Care-Leavers-Guide-to-Apprenticeship_Jan2023-1.pdf)
 
 
@@ -69,7 +65,7 @@ Further details of the care leavers apprenticeship bursary (bonus)
 
 **Careermap** for apprenticeships and jobs [https://careermap.co.uk/jobs?jr=49e0afdc-7456-11f0-893f-0686a47ba19d](https://careermap.co.uk/jobs?jr=49e0afdc-7456-11f0-893f-0686a47ba19d)
 
-
+*
 
 
 # The Care Leaver Covenant  
@@ -103,6 +99,10 @@ Once you have a Gmail account you can use **Google Drive** to create your CV and
 
 Or you could use this website to create and download your CV
 [https://barclayslifeskills.com/i-want-to-use-my-online-presence-to-get-ahead/school/cv-builder/](https://barclayslifeskills.com/i-want-to-use-my-online-presence-to-get-ahead/school/cv-builder/)
+
+
+
+Once you have completed your CV for a particular job you will need to send it with a covering letter or email introducing yourself to the employer  [https://nationalcareers.service.gov.uk/careers-advice/covering-letter](https://nationalcareers.service.gov.uk/careers-advice/covering-letter)
 
 
 If an employer is interested in you, they might ask you to do an online test of some sort. You can practise doing them here [https://www.shl.com/shldirect/en/practice-tests/](https://www.shl.com/shldirect/en/practice-tests/) 
