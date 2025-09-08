@@ -28,10 +28,9 @@ Alternatively, contact your local **Jobcentre Plus** for help. Just click on the
 [https://www.totaljobs.com/careers-advice/job-centres/job-centres](https://www.totaljobs.com/careers-advice/job-centres/job-centres)
 
 
-or use **Total Jobs** to see the current job vacancies 
- [//www.totaljobs.com/?cid=SEA_GO_UK-TJ-BRAND---E%7C%5BA%5D_c_total%20jobs--%7CBRAND001--_totaljobs_FP_RSA1&adjust_t=1qv41avw_1qxxj48s&adjust_campaign=SEA_GO_UK-TJ-BRAND---E%7C%5BA%5D_c_total%20jobs--%7CBRAND001--_totaljobs_FP_RSA1&gad_source=1&gad_campaignid=19773818868&gbraid=0AAAAAD3JKXNOo93I21AZDh4_tjzbgEv_T&gclid=CjwKCAjwiNXFBhBKEiwAPSaPCUnfrmVhLfpPbAcFhpUK03q1eN4fpoMunWJeNcw2p1uSLTGolj-hARoCkbgQAvD_BwE](https://www.totaljobs.com/?cid=SEA_GO_UK-TJ-BRAND---E%7C%5BA%5D_c_total%20jobs--%7CBRAND001--_totaljobs_FP_RSA1&adjust_t=1qv41avw_1qxxj48s&adjust_campaign=SEA_GO_UK-TJ-BRAND---E%7C%5BA%5D_c_total%20jobs--%7CBRAND001--_totaljobs_FP_RSA1&gad_source=1&gad_campaignid=19773818868&gbraid=0AAAAAD3JKXNOo93I21AZDh4_tjzbgEv_T&gclid=CjwKCAjwiNXFBhBKEiwAPSaPCUnfrmVhLfpPbAcFhpUK03q1eN4fpoMunWJeNcw2p1uSLTGolj-hARoCkbgQAvD_BwE)
+or use **Total Jobs** to see current job vacancies: [https://www.totaljobs.com/?cid=SEA_GO_UK-TJ-BRAND---E%7C%5BA%5D_c_total%20jobs--%7CBRAND001--_total%20jobs_FP_RSA1&adjust_t=1qv41avw_1qxxj48s&adjust_campaign=SEA_GO_UK-TJ-BRAND---E%7C%5BA%5D_c_total%20jobs--%7CBRAND001--_total%20jobs_FP_RSA1&gad_source=1&gad_campaignid=19773818868&gbraid=0AAAAAD3JKXOfFhIk-ZtOFEjwj4VcvNh7U&gclid=EAIaIQobChMI0q2dt-PIjwMVb5lQBh2NKC6IEAAYASAAEgL_QPD_BwE](https://www.totaljobs.com/?cid=SEA_GO_UK-TJ-BRAND---E%7C%5BA%5D_c_total%20jobs--%7CBRAND001--_total%20jobs_FP_RSA1&adjust_t=1qv41avw_1qxxj48s&adjust_campaign=SEA_GO_UK-TJ-BRAND---E%7C%5BA%5D_c_total%20jobs--%7CBRAND001--_total%20jobs_FP_RSA1&gad_source=1&gad_campaignid=19773818868&gbraid=0AAAAAD3JKXOfFhIk-ZtOFEjwj4VcvNh7U&gclid=EAIaIQobChMI0q2dt-PIjwMVb5lQBh2NKC6IEAAYASAAEgL_QPD_BwE)
 
-
+ 
 Other job agencies you might like to try:
 
 **Reed**  [https://www.reed.co.uk](https://www.reed.co.uk) 
@@ -75,7 +74,7 @@ Further details of the care leavers apprenticeship bursary (bonus)
 
 # The Care Leaver Covenant  
 
-Jobs, apprenticeships and other opportunities specifically for care leavers 
+Jobs, apprenticeships and other opportunities just for care leavers 
 
 [https://mycovenant.org.uk/for-care-leavers/care-leaver-opportunities/](https://mycovenant.org.uk/for-care-leavers/care-leaver-opportunities/)
 
@@ -85,15 +84,25 @@ Jobs, apprenticeships and other opportunities specifically for care leavers
 
 You will need a typed **CV** telling people about yourself to give to the person at the place you are applying to for a job or to send to the companies you would like to work for
 
-Watch this video to find out what you need to put in your CV [https://youtu.be/0d37P-neOiY](https://youtu.be/0d37P-neOiY)
 
-Tap here to learn about how to write your first CV [https://www.prospects.ac.uk/careers-advice/cvs-and-cover-letters/example-cvs/school-leaver-cv-example](https://www.prospects.ac.uk/careers-advice/cvs-and-cover-letters/example-cvs/school-leaver-cv-example)
+Watch this video to find out what you need to put in your CV (you'll probably need to skip the ads at the beginning)  [https://youtu.be/0d37P-neOiY](https://youtu.be/0d37P-neOiY)
+
+
+
+An example of a CV to give you an idea of what it should look like
+[https://johncabotacademy.clf.uk/wp-content/uploads/School-Leaver-CV-Template.pdf](https://johncabotacademy.clf.uk/wp-content/uploads/School-Leaver-CV-Template.pdf)
+
 
 
 To produce a typed CV you will need to use a PC, phone or tablet. You will also need an **email address** if you're going to be applying for jobs online. Tap on the link to set up a Gmail account 
 [https://support.google.com/mail/answer/56256?hl=en-gb](https://support.google.com/mail/answer/56256?hl=en-gb)
 
+
 Once you have a Gmail account you can use **Google Drive** to create your CV and either print it or save it either as a Word document or a PDF
+
 
 Or you could use this website to create and download your CV
 [https://barclayslifeskills.com/i-want-to-use-my-online-presence-to-get-ahead/school/cv-builder/](https://barclayslifeskills.com/i-want-to-use-my-online-presence-to-get-ahead/school/cv-builder/)
+
+
+If an employer is interested in you, they might ask you to do an online test of some sort. You can practise doing them here [https://www.shl.com/shldirect/en/practice-tests/](https://www.shl.com/shldirect/en/practice-tests/) 
