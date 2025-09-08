@@ -90,9 +90,10 @@ Watch this video to find out what you need to put in your CV [https://youtu.be/0
 Tap here to learn about how to write your first CV [https://www.prospects.ac.uk/careers-advice/cvs-and-cover-letters/example-cvs/school-leaver-cv-example](https://www.prospects.ac.uk/careers-advice/cvs-and-cover-letters/example-cvs/school-leaver-cv-example)
 
 
-To produce a typed CV you will need to use a PC, phone or tablet. You will also need an **email address** if you're going to be applying for jobs online. Tap on the link to set up a gmail account 
+To produce a typed CV you will need to use a PC, phone or tablet. You will also need an **email address** if you're going to be applying for jobs online. Tap on the link to set up a Gmail account 
 [https://support.google.com/mail/answer/56256?hl=en-gb](https://support.google.com/mail/answer/56256?hl=en-gb)
 
 Once you have a Gmail account you can use **Google Drive** to create your CV and either print it or save it either as a Word document or a PDF
 
-Alternatively, you could use this website to create and download your CV
+Or you could use this website to create and download your CV
+[https://barclayslifeskills.com/i-want-to-use-my-online-presence-to-get-ahead/school/cv-builder/](https://barclayslifeskills.com/i-want-to-use-my-online-presence-to-get-ahead/school/cv-builder/)
