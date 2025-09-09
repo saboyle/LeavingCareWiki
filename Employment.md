@@ -71,7 +71,11 @@ Thousands of apprenticeships at all levels on this Government website
 **Careermap** for apprenticeships and jobs [https://careermap.co.uk/jobs?jr=49e0afdc-7456-11f0-893f-0686a47ba19d](https://careermap.co.uk/jobs?jr=49e0afdc-7456-11f0-893f-0686a47ba19d)
 
 
-**Not Going To Uni**  [https://notgoingtouni.co.uk/opportunities#](https://notgoingtouni.co.uk/opportunities#)
+**Not Going To Uni** apprenticeships and other opportunities including a free online course run by an organisation called Launchpad that will introduce you to the world of AI in the workplace 
+
+[https://notgoingtouni.co.uk/opportunities#](https://notgoingtouni.co.uk/opportunities#)
+
+[https://notgoingtouni.co.uk/opportunities-details/virtual-skills-and-work-experience-in-ai-8596#](https://notgoingtouni.co.uk/opportunities-details/virtual-skills-and-work-experience-in-ai-8596#)
 
 
 **Don't Forget** to look up the websites for the companies you're interested in working for and check under 'Careers' or 'Opportunities' with the organisation
@@ -79,6 +83,7 @@ Thousands of apprenticeships at all levels on this Government website
 
 
 *
+
 
 
 # The Care Leaver Covenant  
