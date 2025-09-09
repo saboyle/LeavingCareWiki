@@ -59,8 +59,9 @@ Further details of the **Care Leavers' Apprenticeship Bursary** (bonus)
 [https://www.amazingapprenticeships.com/wp-content/uploads/2023/08/Care-Leavers-Guide-to-Apprenticeship_Jan2023-1.pdf](https://www.amazingapprenticeships.com/wp-content/uploads/2023/08/Care-Leavers-Guide-to-Apprenticeship_Jan2023-1.pdf)
 
 
-**Find an apprenticeship**
+## Find an apprenticeship
 
+Thousands of apprenticeships at all levels on this Government website
 [https://www.findapprenticeship.service.gov.uk](https://www.findapprenticeship.service.gov.uk/apprenticeshipsearch?searchMode=Keyword)
 
 
@@ -70,7 +71,9 @@ Further details of the **Care Leavers' Apprenticeship Bursary** (bonus)
 **Not Going To Uni**  [https://notgoingtouni.co.uk/opportunities#](https://notgoingtouni.co.uk/opportunities#)
 
 
-Don't Forget – look up the website for the company you're interested in working for and check under careers
+**Don't Forget** to look up the website for the company you're interested in working for and check under 'Careers' or 'Opportunities' with the organisation
+
+
 
 *
 
