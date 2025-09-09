@@ -78,7 +78,7 @@ Thousands of apprenticeships at all levels on this Government website
 [https://notgoingtouni.co.uk/opportunities-details/virtual-skills-and-work-experience-in-ai-8596#](https://notgoingtouni.co.uk/opportunities-details/virtual-skills-and-work-experience-in-ai-8596#)
 
 
-**Don't Forget** to look up the websites for the companies you're interested in working for and check under 'Careers' or 'Opportunities' with the organisation
+**Don't Forget** to look up the websites of the companies you're interested in working for and check under 'Careers' or 'Opportunities' to see what jobs are available ijh the organisation
 
 
 
