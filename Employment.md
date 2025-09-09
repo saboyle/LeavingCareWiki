@@ -1,8 +1,11 @@
 
-## Jobs /  Apprenticeships
+# Jobs /  Apprenticeships
 
 
-If you are 16 or 17 and not in full-time education then you will have to do a job with training or start an apprenticeship 
+If you are 16 or 17 and not in full-time education then you will have to do a job with training or start an apprenticeship
+
+
+If you are 18 or over you do not have to get a job that includes training
 
 
 Your **Personal Adviser** should help you decide what you would like to do as a career. If you would like more help contact **Become** [https://becomecharity.org.uk/get-support/care-advice-service/](https://becomecharity.org.uk/get-support/care-advice-service/)
