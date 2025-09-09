@@ -74,11 +74,12 @@ Thousands of apprenticeships at all levels on this Government website
 **Not Going To Uni**  [https://notgoingtouni.co.uk/opportunities#](https://notgoingtouni.co.uk/opportunities#)
 
 
-**Don't Forget** to look up the website for the company you're interested in working for and check under 'Careers' or 'Opportunities' with the organisation
+**Don't Forget** to look up the websites for the companies you're interested in working for and check under 'Careers' or 'Opportunities' with the organisation
 
 
 
 *
+
 
 # The Care Leaver Covenant  
 
@@ -99,12 +100,12 @@ Watch this video to find out what you need to put in your CV (you'll probably ne
 
 
 
-An example of a CV to give you an idea of what it should look like
+**An example of a CV** to give you an idea of what it should look like
 [https://johncabotacademy.clf.uk/wp-content/uploads/School-Leaver-CV-Template.pdf](https://johncabotacademy.clf.uk/wp-content/uploads/School-Leaver-CV-Template.pdf)
 
 
 
-To produce a typed CV you will need to use a PC, phone or tablet. You will also need an **email address** if you're going to be applying for jobs online. Tap on the link to set up a Gmail account 
+To produce a typed CV you will need to use a PC, laptop, phone or tablet. You will also need an **email address** if you're going to be applying for jobs online. Tap on this link to set up a Gmail account 
 [https://support.google.com/mail/answer/56256?hl=en-gb](https://support.google.com/mail/answer/56256?hl=en-gb)
 
 
