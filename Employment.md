@@ -86,6 +86,8 @@ Jobs, apprenticeships and other opportunities just for care leavers
 
 *
 
+## The CV
+
 
 You will need a typed **CV** telling people about yourself to give to the person at the place you are applying to for a job or to send to the companies you would like to work for
 
@@ -106,12 +108,15 @@ To produce a typed CV you will need to use a PC, phone or tablet. You will also 
 Once you have a Gmail account you can use **Google Drive** to create your CV and either print it or save it either as a Word document or a PDF
 
 
-Or you could use this website to create and download your CV
+An easier way of doing it is here – just fill in the boxes to create and download your CV
+
 [https://barclayslifeskills.com/i-want-to-use-my-online-presence-to-get-ahead/school/cv-builder/](https://barclayslifeskills.com/i-want-to-use-my-online-presence-to-get-ahead/school/cv-builder/)
 
 
 
-Once you have completed your CV for a particular job you will need to send it with a covering letter or email introducing yourself to the employer  [https://nationalcareers.service.gov.uk/careers-advice/covering-letter](https://nationalcareers.service.gov.uk/careers-advice/covering-letter)
+Once you have completed your CV for a particular job you will need to send it with a **covering letter**, or email if you are applying for a job online, introducing yourself to the employer  [https://nationalcareers.service.gov.uk/careers-advice/covering-letter](https://nationalcareers.service.gov.uk/careers-advice/covering-letter)
 
+
+## Online Tests
 
 If an employer is interested in you, they might ask you to do an online test of some sort. You can practise doing them here [https://www.shl.com/shldirect/en/practice-tests/](https://www.shl.com/shldirect/en/practice-tests/) 
