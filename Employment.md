@@ -26,15 +26,24 @@ If you would like help getting the confidence and skills you need to apply for a
 
 Have a look at some current job vacancies here  [https://www.gov.uk/find-a-job](https://www.gov.uk/find-a-job)
 
-Alternatively, contact your local **Jobcentre Plus** for help. Just click on the magnifying glass and type in a local postcode. If you haven't got a permanent address, check the address of a local shop so you can use their postcode which will enable you to find the nearest one
-[https://find-your-nearest-jobcentre.dwp.gov.uk/search.php](https://find-your-nearest-jobcentre.dwp.gov.uk/search.php) or you can search for your nearest town in this list of job centres
+
+If you would prefer to go somewhere to look for a job, visit your local **Jobcentre Plus** for help
+
+Find the nearest by typing your postcode here: (if you haven't got a permanent address, check the address of a local shop so you can use their postcode which will enable you to find the nearest one)
+
+[https://find-your-nearest-jobcentre.dwp.gov.uk/search.php](https://find-your-nearest-jobcentre.dwp.gov.uk/search.php) 
+
+
+or you can search for your nearest town in this list of job centres:
+
 [https://www.totaljobs.com/careers-advice/job-centres/job-centres](https://www.totaljobs.com/careers-advice/job-centres/job-centres)
 
 
-or use **Total Jobs** to see current job vacancies: [https://www.totaljobs.com/?cid=SEA_GO_UK-TJ-BRAND---E%7C%5BA%5D_c_total%20jobs--%7CBRAND001--_total%20jobs_FP_RSA1&adjust_t=1qv41avw_1qxxj48s&adjust_campaign=SEA_GO_UK-TJ-BRAND---E%7C%5BA%5D_c_total%20jobs--%7CBRAND001--_total%20jobs_FP_RSA1&gad_source=1&gad_campaignid=19773818868&gbraid=0AAAAAD3JKXOfFhIk-ZtOFEjwj4VcvNh7U&gclid=EAIaIQobChMI0q2dt-PIjwMVb5lQBh2NKC6IEAAYASAAEgL_QPD_BwE](https://www.totaljobs.com/?cid=SEA_GO_UK-TJ-BRAND---E%7C%5BA%5D_c_total%20jobs--%7CBRAND001--_total%20jobs_FP_RSA1&adjust_t=1qv41avw_1qxxj48s&adjust_campaign=SEA_GO_UK-TJ-BRAND---E%7C%5BA%5D_c_total%20jobs--%7CBRAND001--_total%20jobs_FP_RSA1&gad_source=1&gad_campaignid=19773818868&gbraid=0AAAAAD3JKXOfFhIk-ZtOFEjwj4VcvNh7U&gclid=EAIaIQobChMI0q2dt-PIjwMVb5lQBh2NKC6IEAAYASAAEgL_QPD_BwE)
+Online job agencies
 
- 
-Other job agencies you might like to try:
+
+**Total Jobs** to see current job vacancies: [https://www.totaljobs.com/?cid=SEA_GO_UK-TJ-BRAND---E%7C%5BA%5D_c_total%20jobs--%7CBRAND001--_total%20jobs_FP_RSA1&adjust_t=1qv41avw_1qxxj48s&adjust_campaign=SEA_GO_UK-TJ-BRAND---E%7C%5BA%5D_c_total%20jobs--%7CBRAND001--_total%20jobs_FP_RSA1&gad_source=1&gad_campaignid=19773818868&gbraid=0AAAAAD3JKXOfFhIk-ZtOFEjwj4VcvNh7U&gclid=EAIaIQobChMI0q2dt-PIjwMVb5lQBh2NKC6IEAAYASAAEgL_QPD_BwE](https://www.totaljobs.com/?cid=SEA_GO_UK-TJ-BRAND---E%7C%5BA%5D_c_total%20jobs--%7CBRAND001--_total%20jobs_FP_RSA1&adjust_t=1qv41avw_1qxxj48s&adjust_campaign=SEA_GO_UK-TJ-BRAND---E%7C%5BA%5D_c_total%20jobs--%7CBRAND001--_total%20jobs_FP_RSA1&gad_source=1&gad_campaignid=19773818868&gbraid=0AAAAAD3JKXOfFhIk-ZtOFEjwj4VcvNh7U&gclid=EAIaIQobChMI0q2dt-PIjwMVb5lQBh2NKC6IEAAYASAAEgL_QPD_BwE)
+
 
 **Reed**  [https://www.reed.co.uk](https://www.reed.co.uk) 
 
