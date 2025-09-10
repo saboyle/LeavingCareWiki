@@ -43,13 +43,13 @@ or you can search for your nearest town in this list of job centres:
 
 Online job agencies
 
-
-**Total Jobs** to see current job vacancies: [https://www.totaljobs.com/?cid=SEA_GO_UK-TJ-BRAND---E%7C%5BA%5D_c_total%20jobs--%7CBRAND001--_total%20jobs_FP_RSA1&adjust_t=1qv41avw_1qxxj48s&adjust_campaign=SEA_GO_UK-TJ-BRAND---E%7C%5BA%5D_c_total%20jobs--%7CBRAND001--_total%20jobs_FP_RSA1&gad_source=1&gad_campaignid=19773818868&gbraid=0AAAAAD3JKXOfFhIk-ZtOFEjwj4VcvNh7U&gclid=EAIaIQobChMI0q2dt-PIjwMVb5lQBh2NKC6IEAAYASAAEgL_QPD_BwE](https://www.totaljobs.com/?cid=SEA_GO_UK-TJ-BRAND---E%7C%5BA%5D_c_total%20jobs--%7CBRAND001--_total%20jobs_FP_RSA1&adjust_t=1qv41avw_1qxxj48s&adjust_campaign=SEA_GO_UK-TJ-BRAND---E%7C%5BA%5D_c_total%20jobs--%7CBRAND001--_total%20jobs_FP_RSA1&gad_source=1&gad_campaignid=19773818868&gbraid=0AAAAAD3JKXOfFhIk-ZtOFEjwj4VcvNh7U&gclid=EAIaIQobChMI0q2dt-PIjwMVb5lQBh2NKC6IEAAYASAAEgL_QPD_BwE)
+**Total Jobs**  [https://www.totaljobs.com/?cid=SEA_GO_UK-TJ-BRAND---E%7C%5BA%5D_c_total%20jobs--%7CBRAND001--_total%20jobs_FP_RSA1&adjust_t=1qv41avw_1qxxj48s&adjust_campaign=SEA_GO_UK-TJ-BRAND---E%7C%5BA%5D_c_total%20jobs--%7CBRAND001--_total%20jobs_FP_RSA1&gad_source=1&gad_campaignid=19773818868&gbraid=0AAAAAD3JKXOfFhIk-ZtOFEjwj4VcvNh7U&gclid=EAIaIQobChMI0q2dt-PIjwMVb5lQBh2NKC6IEAAYASAAEgL_QPD_BwE](https://www.totaljobs.com/?cid=SEA_GO_UK-TJ-BRAND---E%7C%5BA%5D_c_total%20jobs--%7CBRAND001--_total%20jobs_FP_RSA1&adjust_t=1qv41avw_1qxxj48s&adjust_campaign=SEA_GO_UK-TJ-BRAND---E%7C%5BA%5D_c_total%20jobs--%7CBRAND001--_total%20jobs_FP_RSA1&gad_source=1&gad_campaignid=19773818868&gbraid=0AAAAAD3JKXOfFhIk-ZtOFEjwj4VcvNh7U&gclid=EAIaIQobChMI0q2dt-PIjwMVb5lQBh2NKC6IEAAYASAAEgL_QPD_BwE)
 
 
 **Reed**  [https://www.reed.co.uk](https://www.reed.co.uk) 
 
-**Indeed**  [https://uk.indeed.com/?from=mobRdr&utm_source=%2Fm%2F&utm_medium=redir&utm_campaign=dt#](https://uk.indeed.com/?from=mobRdr&utm_source=%2Fm%2F&utm_medium=redir&utm_campaign=dt#)
+
+**Indeed** [https://uk.indeed.com/?from=mobRdr&utm_source=%2Fm%2F&utm_medium=redir&utm_campaign=dt#](https://uk.indeed.com/?from=mobRdr&utm_source=%2Fm%2F&utm_medium=redir&utm_campaign=dt#)
 
 
 *
@@ -89,7 +89,7 @@ Thousands of apprenticeships at all levels on this Government website
 [https://notgoingtouni.co.uk/opportunities-details/virtual-skills-and-work-experience-in-ai-8596#](https://notgoingtouni.co.uk/opportunities-details/virtual-skills-and-work-experience-in-ai-8596#)
 
 
-l
+
 **Don't Forget** to look up the websites of the companies you're interested in working for and check under 'Careers' or 'Opportunities' to see what jobs are available in the organisation
 
 
