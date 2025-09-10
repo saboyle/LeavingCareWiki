@@ -27,6 +27,7 @@ If you would like help getting the confidence and skills you need to apply for a
 Have a look at some current job vacancies here  [https://www.gov.uk/find-a-job](https://www.gov.uk/find-a-job)
 
 
+
 If you would prefer to go somewhere to look for a job, visit your local **Jobcentre Plus** for help
 
 Find the nearest by typing your postcode here: (if you haven't got a permanent address, check the address of a local shop so you can use their postcode which will enable you to find the nearest one)
@@ -37,6 +38,7 @@ Find the nearest by typing your postcode here: (if you haven't got a permanent a
 or you can search for your nearest town in this list of job centres:
 
 [https://www.totaljobs.com/careers-advice/job-centres/job-centres](https://www.totaljobs.com/careers-advice/job-centres/job-centres)
+
 
 
 Online job agencies
@@ -80,13 +82,14 @@ Thousands of apprenticeships at all levels on this Government website
 **Careermap** for apprenticeships and jobs [https://careermap.co.uk/jobs?jr=49e0afdc-7456-11f0-893f-0686a47ba19d](https://careermap.co.uk/jobs?jr=49e0afdc-7456-11f0-893f-0686a47ba19d)
 
 
-**Not Going To Uni** apprenticeships and other opportunities including a free online course run by an organisation called Launchpad that will introduce you to the world of AI in the workplace 
+**Not Going To Uni** apprenticeships and other opportunities including a free online course that will introduce you to the world of AI in the workplace 
 
 [https://notgoingtouni.co.uk/opportunities#](https://notgoingtouni.co.uk/opportunities#)
 
 [https://notgoingtouni.co.uk/opportunities-details/virtual-skills-and-work-experience-in-ai-8596#](https://notgoingtouni.co.uk/opportunities-details/virtual-skills-and-work-experience-in-ai-8596#)
 
 
+l
 **Don't Forget** to look up the websites of the companies you're interested in working for and check under 'Careers' or 'Opportunities' to see what jobs are available in the organisation
 
 
