@@ -78,10 +78,7 @@ Thousands of apprenticeships at all levels on this Government website
 [https://www.findapprenticeship.service.gov.uk](https://www.findapprenticeship.service.gov.uk/apprenticeshipsearch?searchMode=Keyword)
 
 
-**Careermap** for apprenticeships and jobs [https://careermap.co.uk/jobs?jr=49e0afdc-7456-11f0-893f-0686a47ba19d](https://careermap.co.uk/jobs?jr=49e0afdc-7456-11f0-893f-0686a47ba19d)
-
-
-**Not Going To Uni** apprenticeships and other opportunities including a free online course that will introduce you to the world of AI in the workplace 
+**Not Going To Uni** apprenticeships and other opportunities including a free online course that tells you all about how AI (Artificial Intelligence) is changing the workplace
 
 [https://notgoingtouni.co.uk/opportunities#](https://notgoingtouni.co.uk/opportunities#)
 
