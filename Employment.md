@@ -41,7 +41,7 @@ or you can search for your nearest town in this list of job centres:
 
 
 
-Online job agencies
+**Online job agencies**
 
 **Total Jobs**  [https://www.totaljobs.com/?cid=SEA_GO_UK-TJ-BRAND---E%7C%5BA%5D_c_total%20jobs--%7CBRAND001--_total%20jobs_FP_RSA1&adjust_t=1qv41avw_1qxxj48s&adjust_campaign=SEA_GO_UK-TJ-BRAND---E%7C%5BA%5D_c_total%20jobs--%7CBRAND001--_total%20jobs_FP_RSA1&gad_source=1&gad_campaignid=19773818868&gbraid=0AAAAAD3JKXOfFhIk-ZtOFEjwj4VcvNh7U&gclid=EAIaIQobChMI0q2dt-PIjwMVb5lQBh2NKC6IEAAYASAAEgL_QPD_BwE](https://www.totaljobs.com/?cid=SEA_GO_UK-TJ-BRAND---E%7C%5BA%5D_c_total%20jobs--%7CBRAND001--_total%20jobs_FP_RSA1&adjust_t=1qv41avw_1qxxj48s&adjust_campaign=SEA_GO_UK-TJ-BRAND---E%7C%5BA%5D_c_total%20jobs--%7CBRAND001--_total%20jobs_FP_RSA1&gad_source=1&gad_campaignid=19773818868&gbraid=0AAAAAD3JKXOfFhIk-ZtOFEjwj4VcvNh7U&gclid=EAIaIQobChMI0q2dt-PIjwMVb5lQBh2NKC6IEAAYASAAEgL_QPD_BwE)
 
@@ -49,8 +49,7 @@ Online job agencies
 **Reed**  [https://www.reed.co.uk](https://www.reed.co.uk) 
 
 
-**Indeed** [https://uk.indeed.com/?from=mobRdr&utm_source=%2Fm%2F&utm_medium=redir&utm_campaign=dt#](https://uk.indeed.com/?from=mobRdr&utm_source=%2Fm%2F&utm_medium=redir&utm_campaign=dt#)
-
+**Indeed** [https://uk.indeed.com](https://uk.indeed.com)
 
 *
 
