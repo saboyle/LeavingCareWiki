@@ -1,5 +1,5 @@
 
-## Money
+# Money
 
 Up to age 18 the local council is responsible for supporting you and giving you enough money to live so you should contact your **Personal Adviser** in **Children's Services** 
 [https://www.gov.uk/find-local-council](https://www.gov.uk/find-local-council)
