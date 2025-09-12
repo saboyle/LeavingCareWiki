@@ -1,5 +1,5 @@
 
-## Continuing Support
+# Continuing Support
 
 You are entitled to have a **Personal Adviser** at your local council to help you with any problems until you are 25
 
