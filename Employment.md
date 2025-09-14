@@ -30,13 +30,11 @@ Have a look at some current job vacancies here  [https://www.gov.uk/find-a-job](
 
 If you would prefer to go somewhere to look for a job, visit your local **Jobcentre Plus** for help
 
-Find the nearest by typing your postcode here: (if you haven't got a permanent address, check the address of a local shop so you can use their postcode which will enable you to find the nearest one)
-
+Find the address and phone number by typing your postcode here: (if you haven't got a permanent address, check the address of a local shop so you can use their postcode)
 [https://find-your-nearest-jobcentre.dwp.gov.uk/search.php](https://find-your-nearest-jobcentre.dwp.gov.uk/search.php) 
 
 
-or you can search for your nearest town in this list of job centres:
-
+or you can search for your nearest town in this list of job centres
 [https://www.totaljobs.com/careers-advice/job-centres/job-centres](https://www.totaljobs.com/careers-advice/job-centres/job-centres)
 
 
@@ -68,7 +66,7 @@ If you complete an apprenticeship you will be entitled to a bonus of up to **£3
 [https://www.apprenticeships.gov.uk/apprentices/support-care-experienced-apprentices](https://www.apprenticeships.gov.uk/apprentices/support-care-experienced-apprentices)
 
 
-Further details of the **Care Leavers' Apprenticeship Bursary** (bonus)
+Further details of the bonus, which is called the **Care Leavers' Apprenticeship Bursary** tap
 [https://www.amazingapprenticeships.com/wp-content/uploads/2023/08/Care-Leavers-Guide-to-Apprenticeship_Jan2023-1.pdf](https://www.amazingapprenticeships.com/wp-content/uploads/2023/08/Care-Leavers-Guide-to-Apprenticeship_Jan2023-1.pdf)
 
 
@@ -90,7 +88,7 @@ Thousands of apprenticeships at all levels on this Government website
 
 
 
-**Don't Forget** to look up the websites of the companies you're interested in working for and include the words 'Careers' or 'Opportunities' in your search to see what jobs are available in the organisation
+**Don't Forget** to look up the websites of the companies you're interested in working for and include the words 'Careers', 'Apprenticeships' tapor 'Opportunities' in your search to see what jobs are available in the organisation
 
 
 
@@ -126,11 +124,10 @@ To produce a typed CV you will need to use a PC, laptop, phone or tablet. You wi
 [https://support.google.com/mail/answer/56256?hl=en-gb](https://support.google.com/mail/answer/56256?hl=en-gb)
 
 
-Once you have a Gmail account you can use **Google Drive** to create your CV and either print it or save it either as a Word document or a PDF
+Once you have a Gmail account, you can type your CV in Google Drive and either print it or save it either as a Word document or a PDF
 
 
 An easier way of doing it is here – just fill in the boxes to create and download your CV
-
 [https://barclayslifeskills.com/i-want-to-use-my-online-presence-to-get-ahead/school/cv-builder/](https://barclayslifeskills.com/i-want-to-use-my-online-presence-to-get-ahead/school/cv-builder/)
 
 
