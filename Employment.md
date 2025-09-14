@@ -55,10 +55,10 @@ or you can search for your nearest town in this list of job centres
 
 **What is an apprenticeship?**
 
-Watch this film to find out:
+Watch this film to find out
 [https://www.amazingapprenticeships.com/resources/the-apprenticeship-assembly-film/](https://www.amazingapprenticeships.com/resources/the-apprenticeship-assembly-film/)
 
-Or read this:
+Or read this
 [https://www.gov.uk/become-apprentice](https://www.gov.uk/become-apprentice)
 
 
@@ -66,7 +66,7 @@ If you complete an apprenticeship you will be entitled to a bonus of up to **£3
 [https://www.apprenticeships.gov.uk/apprentices/support-care-experienced-apprentices](https://www.apprenticeships.gov.uk/apprentices/support-care-experienced-apprentices)
 
 
-Further details of the bonus, which is called the **Care Leavers' Apprenticeship Bursary** tap
+Further details of the bonus, which is called the **Care Leavers' Apprenticeship Bursary** 
 [https://www.amazingapprenticeships.com/wp-content/uploads/2023/08/Care-Leavers-Guide-to-Apprenticeship_Jan2023-1.pdf](https://www.amazingapprenticeships.com/wp-content/uploads/2023/08/Care-Leavers-Guide-to-Apprenticeship_Jan2023-1.pdf)
 
 
@@ -88,7 +88,7 @@ Thousands of apprenticeships at all levels on this Government website
 
 
 
-**Don't Forget** to look up the websites of the companies you're interested in working for and include the words 'Careers', 'Apprenticeships' tapor 'Opportunities' in your search to see what jobs are available in the organisation
+**Don't Forget** to look up the websites of the companies you're interested in working for and include the words 'Careers', 'Apprenticeships' or 'Opportunities' in your search to see what jobs are available in the organisation
 
 
 
