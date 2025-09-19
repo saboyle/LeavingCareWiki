@@ -1,6 +1,6 @@
 # Education /  Training
 
-If you decide to leave school at 16 and would like to find out about getting practical skills like plumbing or more qualifications such as GCSEs in English and maths, T Levels, A levels or Diplomas (this is called ‘**Further Education**’) touch the links here
+If you decide to leave school at 16 and would like to find out about getting practical skills like plumbing or more qualifications such as Level 2s (equal to GCSEs) in English and maths, T Levels, A levels or Diplomas (this is called ‘**Further Education**’) tap the links below
 
 [https://nationalcareers.service.gov.uk/find-a-course](https://nationalcareers.service.gov.uk/find-a-course)
 
