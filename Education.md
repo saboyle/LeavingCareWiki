@@ -14,7 +14,8 @@ T levels are a new qualification, this site explains what they are
 If you are 19 or over and want to do training to help you get a job, look here to find free courses [https://www.skillsforcareers.education.gov.uk/pages/training-choice/free-courses-for-jobs](https://www.skillsforcareers.education.gov.uk/pages/training-choice/free-courses-for-jobs)
 
 
-You are entitled to get help applying for **courses** from your **Personal Adviser**
+Up to age 25 you are entitled to get help applying for **courses** from your **Personal Adviser**
+
 
 If you need more help contact the charity for care leavers **Become**
 [https://becomecharity.org.uk/get-support/care-advice-service/](https://becomecharity.org.uk/get-support/care-advice-service/)
