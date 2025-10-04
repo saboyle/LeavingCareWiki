@@ -80,12 +80,12 @@ or read the information here
 
 *
 
-**Helplines** for anyone who has suffered sexual abuse or assault' at any time in their life
-[https://www.csacentre.org.uk/find-a-support-service/](https://www.csacentre.org.uk/find-a-support-service/) 
 
+If you have suffered sexual abuse or assault and you're over 16, contact this organisation for support
+[https://247sexualabusesupport.org.uk](https://247sexualabusesupport.org.uk)
 
-*
-
+If you are over 18 and experienced abuse while you were a child, this organisation will support you 
+[
 
  YouTube film by a man who was brought up in care **and thinks all children and young people in care are STARS!**
 [https://m.youtube.com/watch?v=Uwj5XKzOadM&t=22s](https://m.youtube.com/watch?v=Uwj5XKzOadM&t=22s)
