@@ -54,7 +54,7 @@ In England the Education Maintenance Allowance has been replaced with the **16-1
 **Want to go to university?**
 
 If you live in Scotland and wish to study at a Scottish university you won’t have to pay any tuition fees. Click here for funding information
-[http://www.saas.gov.uk](http://www.saas.gov.uk)
+[https://www.saas.gov.uk](https://www.saas.gov.uk)
 
 If you live in England, Wales or Northern Ireland you will have to get funding to pay for your university course. You have to apply to **Student Finance**
 [https://www.gov.uk/apply-for-student-finance](https://www.gov.uk/apply-for-student-finance)
