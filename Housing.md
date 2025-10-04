@@ -5,7 +5,7 @@ The person who looks after you in the local council, your **Personal Adviser**, 
 [https://www.gov.uk/leaving-foster-or-local-authority-care](https://www.gov.uk/leaving-foster-or-local-authority-care)
 
 The housing charity **Shelter** has a website with useful information about what you are entitled to
-[http://england.shelter.org.uk/housing_advice/housing_for_young_people/help_and_housing_for_care_leavers](http://england.shelter.org.uk/housing_advice/housing_for_young_people/help_and_housing_for_care_leavers)
+[https://england.shelter.org.uk/housing_advice/homelessness/housing_help_and_homelessness_if_you_are_a_care_leaver](https://england.shelter.org.uk/housing_advice/homelessness/housing_help_and_homelessness_if_you_are_a_care_leaver)
 
 If you are moved to a place where you don’t feel safe for any reason then tell the person who looks after you in the council. If they don’t help you then contact one of these organisations that help young people stand up for their rights
 
