@@ -135,7 +135,7 @@ You might prefer to do your banking online; this is a basic bank account with th
 [https://www.capstonecareleaverstrust.org/applications/apply/](https://www.capstonecareleaverstrust.org/applications/apply/)
 
 **The King's Trust (formerly The Prince's Trust)**
-[//www.princes-trust.org.uk/help-for-young-people/get-funding-train-learn](https://www.princes-trust.org.uk/help-for-young-people/get-funding-train-learn)
+[https://www.kingstrust.org.uk/how-we-can-help/free-funding-to-train-or-start-work](https://www.kingstrust.org.uk/how-we-can-help/free-funding-to-train-or-start-work)
 
 
 
