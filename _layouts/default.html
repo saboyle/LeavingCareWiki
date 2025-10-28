@@ -2,6 +2,8 @@
 <html lang="{{ site.lang | default: "en-US" }}">
   <head>
 
+    <link rel="stylesheet" href="https://cdnjs.cloudflare.com/ajax/libs/font-awesome/6.4.0/css/all.min.css">
+    
     {% if site.google_analytics %}
       <script async src="https://www.googletagmanager.com/gtag/js?id={{ site.google_analytics }}"></script>
       <script>
@@ -45,7 +47,8 @@
   {{ content }}
 
 <!-- Adding Facebook Share Link -->
-  <style>
+
+<style>
   .fb-share-btn {
     background-color: #4267B2;
     color: white;
@@ -56,6 +59,9 @@
     cursor: pointer;
     font-weight: bold;
     transition: background-color 0.3s ease;
+    display: inline-flex;
+    align-items: center;
+    gap: 8px;
   }
   
   .fb-share-btn:hover {
@@ -64,7 +70,8 @@
 </style>
 
 <button onclick="shareOnFacebook()" class="fb-share-btn">
-  📘 Share on Facebook
+  <i class="fab fa-facebook-f"></i>
+  Share on Facebook
 </button>
 
 <script>
@@ -77,6 +84,7 @@ function shareOnFacebook() {
   );
 }
 </script>
+  
 <!-- End of Facebook Sharing -->   
       
       <footer class="site-footer">
