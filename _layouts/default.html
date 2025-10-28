@@ -46,7 +46,7 @@
 <main id="content" class="main-content" role="main">
   {{ content }}
 
-<!-- Adding Facebook Share Link -->
+<!-- Adding Facebook & WhatsApp Share Links -->
 
 <style>
   .fb-share-btn {
@@ -67,11 +67,37 @@
   .fb-share-btn:hover {
     background-color: #365899;
   }
+
+  .wa-share-btn {
+    background-color: #25D366;
+    color: white;
+    padding: 12px 24px;
+    font-size: 16px;
+    border: none;
+    border-radius: 5px;
+    cursor: pointer;
+    font-weight: bold;
+    transition: background-color 0.3s ease;
+    display: inline-flex;
+    align-items: center;
+    gap: 8px;
+  }
+  
+  .wa-share-btn:hover {
+    background-color: #128C7E;
+  }
 </style>
 
+<!-- Facebook Share Button -->
 <button onclick="shareOnFacebook()" class="fb-share-btn">
   <i class="fab fa-facebook-f"></i>
   Share on Facebook
+</button>
+
+<!-- WhatsApp Share Button -->
+<button onclick="shareOnWhatsApp()" class="wa-share-btn">
+  <i class="fab fa-whatsapp"></i>
+  Share on WhatsApp
 </button>
 
 <script>
@@ -83,9 +109,19 @@ function shareOnFacebook() {
     'width=800,height=600'
   );
 }
+
+function shareOnWhatsApp() {
+  const url = encodeURIComponent(window.location.href);
+  const text = encodeURIComponent('Check out this page: ');
+  window.open(
+    `https://wa.me/?text=${text}${url}`,
+    'whatsapp-share-dialog',
+    'width=800,height=600'
+  );
+}
 </script>
   
-<!-- End of Facebook Sharing -->   
+<!-- End of Social Media Sharing -->   
       
       <footer class="site-footer">
         <!--
