@@ -41,9 +41,23 @@
 
     </header>
 
-    <main id="content" class="main-content" role="main">
-      {{ content }}
+<main id="content" class="main-content" role="main">
+  {{ content }}
+  <a href="#" onclick="shareOnFacebook(); return false;">
+Share on Facebook
+</a>
 
+<script>
+function shareOnFacebook() {
+  const url = encodeURIComponent(window.location.href);
+  window.open(
+    `https://www.facebook.com/sharer/sharer.php?u=${url}`,
+    'facebook-share-dialog',
+    'width=800,height=600'
+  );
+}
+</script>
+      
       <footer class="site-footer">
         <!--
         {% if site.github.is_project_page %}
