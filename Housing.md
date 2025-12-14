@@ -21,7 +21,7 @@ If you're under 18, contact your **Personal Adviser** at **Children's Services**
 
 If you are between 18 and 25 you have the right to be supported by the council so contact your **Personal Adviser**
 
-
+**If you will be homeless on Christmas Day, contact your Personal Adviser and ask where there is a free lunch being provided in your area**
 
 If you don’t get support from the council these sites can help:
 
