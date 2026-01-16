@@ -16,7 +16,7 @@ Find out what type of work you would be good at here [https://nationalcareers.se
 *
 
 
-If you would like help getting the confidence and skills you need to apply for an apprenticeship or a job **The King's Trust** offers support and training [https://www.kingstrust.org.uk/how-we-can-help/explore-all-support](https://www.kingstrust.org.uk/how-we-can-help/explore-all-support) AC
+If you would like help getting the confidence and skills you need to apply for an apprenticeship or a job **The King's Trust** offers support and training [https://www.kingstrust.org.uk/opportunity-explorer](https://www.kingstrust.org.uk/opportunity-explorer)
 
 
 *
