@@ -24,7 +24,8 @@ or **Coram Voice**
 [https://coramvoice.org.uk](https://coramvoice.org.uk)
 
 
-**The King's Trust** offers help with building your confidence so you can find out what you would like to do with your life and support to help you find a job or start a business [https://www.kingstrust.org.uk/how-we-can-help/explore-all-support](https://www.kingstrust.org.uk/how-we-can-help/explore-all-support)
+**The King's Trust** offers help with building your confidence so you can find out what you would like to do with your life and support to help you find a job or start a business
+[https://www.kingstrust.org.uk/opportunity-explorer](https://www.kingstrust.org.uk/opportunity-explorer)
 
 
 *
