@@ -67,7 +67,7 @@ If you complete an apprenticeship you will be entitled to a bonus of up to **£3
 
 
 Further details of the bonus, which is called the **Care Leavers' Apprenticeship Bursary** 
-[https://www.amazingapprenticeships.com/wp-content/uploads/2023/08/Care-Leavers-Guide-to-Apprenticeship_Jan2023-1.pdf](https://www.amazingapprenticeships.com/wp-content/uploads/2023/08/Care-Leavers-Guide-to-Apprenticeship_Jan2023-1.pdf)
+[https://centraltraininggroup.com/resources/apprenticeship-bursary/](https://centraltraininggroup.com/resources/apprenticeship-bursary/)
 
 
 ## Find an apprenticeship
