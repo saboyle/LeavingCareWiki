@@ -14,7 +14,7 @@ If you are moved to a place where you don’t feel safe for any reason then tell
 **National Youth Advocacy Service** [https://www.nyas.net/get-support/young-people/](https://www.nyas.net/get-support/young-people/)
 
 
-##Are you Homeless?
+## Are you Homeless?
 
 If you're under 18, contact your **Personal Adviser** at **Children's Services** who should treat you as what they call a ‘child in need’ of emergency accommodation
 [https://www.gov.uk/your-rights-to-housing-if-youre-under-18](https://www.gov.uk/your-rights-to-housing-if-youre-under-18)
