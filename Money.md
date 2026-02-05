@@ -60,7 +60,7 @@ If you live in England, Wales or Northern Ireland you will have to get funding t
 [https://www.gov.uk/apply-for-student-finance](https://www.gov.uk/apply-for-student-finance)
 
 Touch here to find out how to deal with the household income questions as an ‘independent student’ (care leaver)
-[https://www.standalone.org.uk/guides/student-guide/#independent-status](https://www.standalone.org.uk/guides/student-guide/#independent-status)
+[https://www.standalone.org.uk/guides/student-guide/](https://www.standalone.org.uk/guides/student-guide/)
 
 
 You are entitled to £2,000 if you are between 18 and 21 and are doing a course of higher education at a college or university. Contact your Personal Adviser or your support person where you’re studying to help you apply for this
