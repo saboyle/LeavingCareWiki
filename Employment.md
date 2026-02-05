@@ -56,7 +56,7 @@ or you can search for your nearest town in this list of job centres
 **What is an apprenticeship?**
 
 Watch this film to find out
-[https://www.amazingapprenticeships.com/resources/the-apprenticeship-assembly-film/](https://www.amazingapprenticeships.com/resources/the-apprenticeship-assembly-film/)
+[https://www.youtube.com/watch?v=Y9trimYQSAM&list=PLUek1kBt46KxpV8cy7l-FvDF8m_fCZOi9](https://www.youtube.com/watch?v=Y9trimYQSAM&list=PLUek1kBt46KxpV8cy7l-FvDF8m_fCZOi9)
 
 Or read this
 [https://www.gov.uk/become-apprentice](https://www.gov.uk/become-apprentice)
