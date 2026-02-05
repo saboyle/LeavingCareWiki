@@ -4,7 +4,7 @@
 Up to age 18 the local council is responsible for supporting you and giving you enough money to live so you should contact your **Personal Adviser** in **Children's Services** 
 [https://www.gov.uk/find-local-council](https://www.gov.uk/find-local-council)
 
-If you can't get any help from Children's Services, contact one of the organisations listed under Universal Credit and tell someone that you aren't being supported by the council
+If you can't get any help from Children's Services, contact one of the organisations listed below and tell someone that you aren't being supported by the council
 
 *
 
