@@ -97,5 +97,7 @@ If you are over 18 and experienced abuse while you were a child, this organisati
 
 *
 
- YouTube film by a man who was brought up in care **and thinks all children and young people in care are STARS!**
+"Life Of A Care Leaver" video diary of a care leaver [https://www.youtube.com/watch?v=3Xe4hu2VWog](https://www.youtube.com/watch?v=3Xe4hu2VWog)
+
+A YouTube film by a man who was brought up in care **and thinks all children and young people in care are STARS!**
 [https://m.youtube.com/watch?v=Uwj5XKzOadM&t=22s](https://m.youtube.com/watch?v=Uwj5XKzOadM&t=22s)
