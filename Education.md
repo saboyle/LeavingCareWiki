@@ -103,7 +103,6 @@ Here are the websites for some of the universities offering special support:
 
 
 **University of Edinburgh** 
-
 [https://study.ed.ac.uk/undergraduate/access-edinburgh/edinburgh-cares](https://study.ed.ac.uk/undergraduate/access-edinburgh/edinburgh-cares)
 
 
