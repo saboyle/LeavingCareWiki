@@ -83,9 +83,9 @@ Thousands of apprenticeships at all levels on this Government website
 [https://notgoingtouni.co.uk/opportunities#](https://notgoingtouni.co.uk/opportunities#)
 
 
-**Free** online work experience and skills tool kit for dealing with AI at work
-[https://notgoingtouni.co.uk/opportunities-details/virtual-skills-and-work-experience-in-ai-8596#](https://notgoingtouni.co.uk/opportunities-details/virtual-skills-and-work-experience-in-ai-8596#)
 
+**Find out about AI in the workplace for free**
+[https://thecodersguild.org.uk/hub/ai/best-free-ai-courses-tools-and-platforms-for-beginners-in-2026/](https://thecodersguild.org.uk/hub/ai/best-free-ai-courses-tools-and-platforms-for-beginners-in-2026/)
 
 
 **Don't Forget** to look up the websites of the companies you're interested in working for and include the words 'Careers', 'Apprenticeships' or 'Opportunities' in your search to see what jobs are available in the organisation
