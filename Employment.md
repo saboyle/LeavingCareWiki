@@ -76,7 +76,7 @@ Thousands of apprenticeships at all levels on this Government website
 [https://www.findapprenticeship.service.gov.uk](https://www.findapprenticeship.service.gov.uk/apprenticeshipsearch?searchMode=Keyword)
 
 
-**Careermap** [https://careermap.co.uk/jobs](https://careermap.co.uk/jobs)
+**Careermap** [https://careermap.co.uk](https://careermap.co.uk)
 
 
 **Not Going To Uni** apprenticeships and other opportunities 
