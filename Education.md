@@ -98,10 +98,12 @@ Here are the websites for some of the universities offering special support:
 [https://www1.essex.ac.uk/students/groups/care-leavers.aspx](https://www1.essex.ac.uk/students/groups/care-leavers.aspx)
 
 
-**University of Wales, Swansea**
-[https://www.uwtsd.ac.uk/study/fees-and-finance/undergraduate-fees/undergraduate-funding-support/undergraduate-bursaries-2](https://www.uwtsd.ac.uk/study/fees-and-finance/undergraduate-fees/undergraduate-funding-support/undergraduate-bursaries-2)
+**Cardiff University**
+[https://www.cardiff.ac.uk/study/student-life/student-support/dedicated-support-services/care-leavers](https://www.cardiff.ac.uk/study/student-life/student-support/dedicated-support-services/care-leavers)
+
 
 **University of Edinburgh** 
+
 [https://study.ed.ac.uk/undergraduate/access-edinburgh/edinburgh-cares](https://study.ed.ac.uk/undergraduate/access-edinburgh/edinburgh-cares)
 
 
