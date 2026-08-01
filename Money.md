@@ -74,21 +74,24 @@ This guide will help you manage your money as you start your university life [ht
 *
 
 
-**Getting a job**
-
+**Getting a job or an apprenticeship**
 
 **Apprenticeship Bursaries**
 If you would prefer to start work rather than stay in education, starting an apprenticeship will make you eligible for up to £3,000
 [https://www.apprenticeships.gov.uk/apprentices/support-care-experienced-apprentices](https://www.apprenticeships.gov.uk/apprentices/support-care-experienced-apprentices)
 
+
 You should also be paid at least the minimum rate that applies to your age, so check here
 [https://www.gov.uk/become-apprentice/pay-and-conditions](https://www.gov.uk/become-apprentice/pay-and-conditions)
 
-If you think you're not being paid properly or you're having money problems with your employer, contact Citizens Advice [https://www.citizensadvice.org.uk/work/pay/getting-paid-less-than-minimum-wage-or-living-wage/](https://www.citizensadvice.org.uk/work/pay/getting-paid-less-than-minimum-wage-or-living-wage/)
 
-If you are on a low wage and you are over 18 you can apply for **Universal Credit** see above
+Whether you’re working or doing an apprenticeship, if you think you're not being paid properly or you're having money problems with your employer, contact Citizens Advice [https://www.citizensadvice.org.uk/work/pay/getting-paid-less-than-minimum-wage-or-living-wage/](https://www.citizensadvice.org.uk/work/pay/getting-paid-less-than-minimum-wage-or-living-wage/)
 
-For anyone under 18 having problems, contact your Personal Adviser or one of the organisations shown above
+
+If you are on a low wage and you are over 18 you can apply for **Universal Credit** 
+
+
+For anyone under 18 having money problems, contact your Personal Adviser or one of the organisations listed on this page
 
 
 *
