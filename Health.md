@@ -14,7 +14,7 @@ If you're hurt but you can get to a hospital or clinic by yourself, find your ne
 *
 
 
-Need to find a local **GP (doctor)** or a **dentist?** [https://www.nhs.uk/service-search/](https://www.nhs.uk/service-search/)
+Need to find a local **GP (doctor)** or an **NHS dentist?** [https://www.nhs.uk/service-search/](https://www.nhs.uk/service-search/)
 
 
 
