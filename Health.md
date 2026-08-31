@@ -24,7 +24,7 @@ Need to find a local **GP (doctor)** or an **NHS dentist?** [https://www.nhs.uk/
 **Drug problems?**
 Contact the helpline at **Talk to Frank** [https://www.talktofrank.com/contact-frank](https://www.talktofrank.com/contact-frank)
 
-**S Addiction Services** get help with addictions like drinking or gambling
+**NHS Addiction Services** get help with addictions like drinking or gambling
 [https://www.nhs.uk/live-well/healthy-body/addiction-what-is-it/](https://www.nhs.uk/live-well/healthy-body/addiction-what-is-it/)
 
 
