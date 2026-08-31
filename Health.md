@@ -22,10 +22,9 @@ Need to find a local **GP (doctor)** or a **dentist?** [https://www.nhs.uk/servi
 
 
 **Drug problems?**
-Contact the helpline at **Talk to Frank** [https://www.talktofrank.com/get-help/find-support-near-you](https://www.talktofrank.com/get-help/find-support-near-you)
-   
+Contact the helpline at **Talk to Frank** [https://www.talktofrank.com/contact-frank](https://www.talktofrank.com/contact-frank)
 
-**NHS Addiction Services** get help with addictions like drinking or gambling
+**S Addiction Services** get help with addictions like drinking or gambling
 [https://www.nhs.uk/live-well/healthy-body/addiction-what-is-it/](https://www.nhs.uk/live-well/healthy-body/addiction-what-is-it/)
 
 
