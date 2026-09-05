@@ -67,7 +67,9 @@ If you feel you have to hurt yourself to deal with your feelings, tap here [http
 **The Mix** information and free telephone or online counselling on any aspect of mental health [https://www.themix.org.uk/explore-our-topics/mental-health/](https://www.themix.org.uk/explore-our-topics/mental-health/)
 
 
-**Side By Side** online community where you can share your mental health problems with others going through the same things [https://www.mind.org.uk/information-support/side-by-side-our-online-community/](https://www.mind.org.uk/information-support/side-by-side-our-online-community/)
+
+**Side By Side** online community where you can share your mental health problems with others going through the same thing [https://sidebyside.mind.org.uk](https://sidebyside.mind.org.uk)
+
 
 
 **turn2me** an organisation that can help you sort out your feelings
