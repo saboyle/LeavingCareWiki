@@ -34,10 +34,12 @@ Find out what funding is available for your college course
 A university student’s story 
 [https://becomecharity.org.uk/inspiration/zions-story/](https://becomecharity.org.uk/inspiration/zions-story/)
 
+
 A Youtube film of care leavers at university
 [https://m.youtube.com/watch?v=NN2T0D6mW2Y](https://m.youtube.com/watch?v=NN2T0D6mW2Y)
 
-Estranged and care experienced students (EaCES), a group set up by for students emerging from the care system, providing information and support
+
+Estranged and Care Experienced Students (EaCES), a group set up by and for students emerging from the care system, providing information and support
 [https://sites.google.com/view/eaces-handbook/about-us-contact-get-involved](https://sites.google.com/view/eaces-handbook/about-us-contact-get-involved)
 
 
